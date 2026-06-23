@@ -6,6 +6,7 @@ Full site (GitHub Pages): https://samuibikes.github.io/samui-bikes-pages/
 ## Latest
 
 <!-- LATEST:START -->
+- 2026-06-23 · EN — [Scooter & Bike Rentals on Koh Samui](https://samuibikes.github.io/samui-bikes-pages/2026/06/23/scooter-bike-rentals-on-koh-samui/)
 <!-- LATEST:END -->
 
 ## About
