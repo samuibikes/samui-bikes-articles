@@ -11,4 +11,11 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 ## Guides & Insights
 
 <!-- LATEST:START -->
+
+### [Scooter & Bike Rentals on Koh Samui](https://samui-bikes.com/en/)
+
+Rent scooters, e-scooters, motorbikes, and bicycles on Koh Samui. Daily and weekly rates, island-wide delivery. Choose from different models including Honda, Yamaha, and Trek.
+
+*June 23, 2026 · EN*
+
 <!-- LATEST:END -->
