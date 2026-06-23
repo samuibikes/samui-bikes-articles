@@ -1,15 +1,14 @@
-# Samui Bikes — Links & Updates
+# Renting Bikes on Koh Samui 🛵🌴
 
-Curated links and updates from [samui-bikes.com](https://samui-bikes.com).
-Full site (GitHub Pages): https://samuibikes.github.io/samui-bikes-pages/
+A growing collection of insights, experiences, and honest advice about renting
+scooters and bikes on **Koh Samui** — island routes, choosing the right model,
+how daily and weekly rates and delivery work, and the local know-how that makes
+a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.com).
 
-## Latest
+> Browse the full collection on our [GitHub Pages site](https://samuibikes.github.io/samui-bikes-pages/), where each
+> guide gets its own page.
+
+## Guides & Insights
 
 <!-- LATEST:START -->
-- 2026-06-23 · EN — [Scooter & Bike Rentals on Koh Samui](https://samui-bikes.com/en/)
 <!-- LATEST:END -->
-
-## About
-
-Each entry links to a full page on the GitHub Pages site above. Updated
-automatically as new content goes live on samui-bikes.com.
