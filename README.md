@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Rent Honda Scoopy](https://samui-bikes.com/en/rent-scooter/rent-honda-scoopy/)
+
+Rent a Honda Scoopy on Koh Samui. The Honda Scoopy's 740 mm seat height is the lowest of any scooter in the Samui Bikes fleet, making ...
+
+*July 11, 2026 · EN*
+
 ### [Rent a scooter](https://samui-bikes.com/en/rent-scooter/)
 
 Explore Koh Samui on a scooter. Choose from models including the Honda Scoopy, Yamaha NMAX 155, and XMAX 300. Daily and weekly rates available.
