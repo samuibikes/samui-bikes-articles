@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Who should choose Honda Scoopy for Samui trip?](https://samui-bikes.com/en/rent-scooter/rent-honda-scoopy/who-should-choose-honda-scoopy-for-samui-trip/)
+
+I picked up a red Honda Scoopy outside Chaweng Market at 8 a.m. last January and stepped off it six hours later at Bophut Night Market convinced it is Samui's most forgiving first scooter. The automatic twist-and-go asks nothing except attention to traffic, and the 110cc engine builds speed predictably, sitting happily between 40 and 60 km/h across every road from Chaweng to Nathon. The seat is wider than photos suggest and takes two adults with solid grab rails, while the underseat storage swallows a couple of small bags. At 250 to 300 baht a day and 45 to 48 km per litre, it is the cheapest option that still has a front disc and combined braking. It suits solo first-week travellers riding beach-to-beach under 20 km, and couples with light luggage. Heavier riders or anyone tackling the Nathon mountain climb should size up to a 150cc.
+
+*July 12, 2026 · EN*
+
 ### [Rent Honda Scoopy](https://samui-bikes.com/en/rent-scooter/rent-honda-scoopy/)
 
 Rent a Honda Scoopy on Koh Samui. The Honda Scoopy's 740 mm seat height is the lowest of any scooter in the Samui Bikes fleet, making ...
