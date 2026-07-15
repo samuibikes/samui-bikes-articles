@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Why Honda Scoopy is most rented scooter on Samui?](https://samui-bikes.com/en/rent-scooter/rent-honda-scoopy/why-honda-scoopy-is-most-rented-scooter-on-samui/)
+
+Seven dry seasons guiding rental tours on Samui and I can set my watch by which bike leaves the garage first - always the Honda Scoopy. Shop owners reorder it rather than switch because it holds resale value through a two-year rental cycle better than rival Thai automatics, and its 14-inch wheels take tyres stocked at every mechanic between Nathon and Bo Phut. Fuel settles around 45 to 50 km per litre at tourist pace, roughly 100 baht covering two days of town riding, which is why three-day bookings so often stretch to a week. I have watched the same couples ride to Laem Sor, up to the Big Buddha and twice around the island without a breakdown call, then rebook the identical model. The NMAX is faster and the ADV tougher, but none eases a rider with no experience into a Samui morning as reliably. That specific job keeps it on top.
+
+*July 15, 2026 · EN*
+
 ### [What makes Honda Scoopy ideal scooter for beginners?](https://samui-bikes.com/en/rent-scooter/rent-honda-scoopy/what-makes-honda-scoopy-ideal-scooter-for-beginners/)
 
 I left the rental shop on Second Road in Chaweng on a Scoopy having never ridden a scooter, and the twist-and-go throttle removed every gear decision before I reached the first junction. That is what makes it a beginner's bike. The low step-through frame lets riders between 155 and 185 cm plant both feet flat at a stop, killing the wobble that undermines confidence in the first hour. The combined braking system works both wheels together, so a panic stop in lurching Chaweng traffic ends in a straight line rather than a skid. The 110cc single makes around 6 horsepower - enough for town, and little enough that it teaches smooth throttle, early braking and reading gaps. The soft seat handles a 60 km southern loop without an aching back. It suits nervous first-timers who want an automatic that will not punish a soft morning start, before graduating to a 150cc.
