@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How to ride Honda Scoopy in Samui rainy season?](https://samui-bikes.com/en/rent-scooter/rent-honda-scoopy/how-to-ride-honda-scoopy-in-samui-rainy-season/)
+
+I was on the ring road near Lamai when the first monsoon clouds moved in from the Gulf, and within four minutes the combined braking system caught a skid my heavy braking had invited - the Scoopy handles wet roads better than the rider does at first. Leaving Mae Nam on grey mornings I read the road shadow: wet asphalt darkens in patches under the rubber trees, and I drop 15 to 20 km/h before junctions. On wet painted lines near Chaweng the sequence is rear brake first, then front, never front alone, which prevents the most common wet fall. A 150-gram packable jacket in a 5-litre dry bag fits under the seat and deploys in forty seconds. Corner entry should drop to about 70 per cent of dry-weather pace. Two conditions send me home: lightning over the sea and the ring road flooded north of Nathon - both usually clear within two hours.
+
+*July 17, 2026 · EN*
+
 ### [Where to explore Koh Samui beaches on Honda Scoopy?](https://samui-bikes.com/en/rent-scooter/rent-honda-scoopy/where-to-explore-koh-samui-beaches-on-honda-scoopy/)
 
 I turned north from Bo Phut junction on a Scoopy before 8 a.m. in January, passed the fishing village without a single tour group and reached Choeng Mon Bay in eighteen relaxed minutes - the road curves and drops so constantly that the Scoopy's low top speed never matters. South of Lamai past the Hin Ta viewpoint the road narrows and the rental crowd thins; the Scoopy slips through the concrete lane toward Ban Taling Ngam that scrapes wider bikes, onto gravel ledges its light weight reverses off without help. The dirt track to Silver Beach runs 200 metres of compacted earth, walkable on the Scoopy, to a cove with no chairs or sound system. On drizzly east-coast mornings I cross to the wide, tree-shaded west road by Nathon and find dry tarmac and no traffic. Ride the northern loop before 7 a.m. and the quiet southern coves - the lanes that suit it best.
