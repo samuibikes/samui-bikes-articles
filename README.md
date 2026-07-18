@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which Honda Scoopy variant is best for Samui?](https://samui-bikes.com/en/rent-scooter/rent-honda-scoopy/which-honda-scoopy-variant-is-best-for-samui/)
+
+At the Second Road counter in Chaweng I once asked to see two Scoopys side by side, and on a wet patch the linked combined-braking unit stopped two metres shorter at 30 km/h than the older mechanical setup - on roads where vehicles halt without warning, always confirm which braking system a unit has before signing. A 6 to 12-month-old bike is the sweet spot: tighter low-speed throttle and less handlebar vibration at 50 km/h than a tired two-year-old unit. On this sun-baked island I pick white or silver over matte black, which grows uncomfortably warm to touch by 10 a.m. and shows scratches more. Check tyre pressure before riding - 175 kPa front, 200 kPa rear - since fleet units often run low, blunting the braking. Which variant is best comes down to condition, not spec: registration within two years, correct tyre pressure and a clean linked brake eliminate most of the risk.
+
+*July 18, 2026 · EN*
+
 ### [How to ride Honda Scoopy in Samui rainy season?](https://samui-bikes.com/en/rent-scooter/rent-honda-scoopy/how-to-ride-honda-scoopy-in-samui-rainy-season/)
 
 I was on the ring road near Lamai when the first monsoon clouds moved in from the Gulf, and within four minutes the combined braking system caught a skid my heavy braking had invited - the Scoopy handles wet roads better than the rider does at first. Leaving Mae Nam on grey mornings I read the road shadow: wet asphalt darkens in patches under the rubber trees, and I drop 15 to 20 km/h before junctions. On wet painted lines near Chaweng the sequence is rear brake first, then front, never front alone, which prevents the most common wet fall. A 150-gram packable jacket in a 5-litre dry bag fits under the seat and deploys in forty seconds. Corner entry should drop to about 70 per cent of dry-weather pace. Two conditions send me home: lightning over the sea and the ring road flooded north of Nathon - both usually clear within two hours.
