@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [When to pick Yamaha Filano over Scoopy on Samui?](https://samui-bikes.com/en/rent-scooter/rent-yamaha-filano/when-to-pick-yamaha-filano-over-scoopy-on-samui/)
+
+I rode the Filano north along Chaweng Beach Road at 7 a.m. and the Scoopy south the same distance before swapping, and the Filano's lighter steering through the gentle camber registered before anything else - small corrections happen without the deliberate wrist input the Scoopy asks at walking pace. Pick the Filano when your riding is urban: its 125cc engine covers everything within Chaweng, Lamai and the northern towns, and at 94 kg versus 97 kg it tips onto the stand and threads tight parking near the Lamai roundabout with less effort. It slots into the narrowest gaps between Lamai Night Market food carts where the Scoopy's wider body struggles. The Scoopy edges ahead only above 90 km/h and on the hills toward the Big Buddha road. My rule after seven years: choose the Filano if the rider is 160 cm or shorter, the riding stays urban, or low-speed comfort matters most.
+
+*July 31, 2026 · EN*
+
 ### [Who is Yamaha Filano designed for? Female riders guide](https://samui-bikes.com/en/rent-scooter/rent-yamaha-filano/who-is-yamaha-filano-designed-for-female-riders-guide/)
 
 I first rented the Yamaha Filano in Lamai because its design stood out among the usual rental scooters. After riding it for a week, I understood why many riders prefer it. The Filano feels different from typical automatics: the seat is lower, the steering is lighter, and the overall shape feels easier to control. Yamaha designed the Filano with Southeast Asian female riders in mind, focusing on comfort and easy handling. The lower 752 mm seat height, lighter weight, and narrower controls make it suitable for shorter riders who may struggle with taller scooters. In busy areas like markets, parking lots, and town streets, the Filano feels simple and natural to move. The wide flat footboard also adds practicality for carrying small bags or shopping items. My experience shows the Filano is not only about style - it is a scooter built around comfort, confidence, and everyday usability. It works best for riders who want a lighter, easier automatic.
