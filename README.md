@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [What are Yamaha Filano engine specs and features?](https://samui-bikes.com/en/rent-scooter/rent-yamaha-filano/what-are-yamaha-filano-engine-specs-and-features/)
+
+I lifted the Filano's seat outside Fisherman's Village market and a full-face helmet dropped in - just - with the visor angled forward. Yamaha lists that bay at 17.3 litres, smaller than the Scoopy's and far below the NMAX, so pack light; a USB port at the top of the compartment keeps a phone or battery pack charged, which matters if you navigate Samui by map. The 125cc single makes about 9.2 horsepower, enough to pull two riders under 150 kg combined on moderate grades, with smooth fuel injection and no surge off the line in stop-start traffic. I ran the 68 km Bo Phut-to-Nathon loop on the 4.2-litre tank and measured around 50 km/l, a day more between fills than the Scoopy. Front disc, rear drum, and a progressive linked brake stopped straight on the wet Lamai junction. Efficiency and braking are the specs that matter; storage is the first limit you hit.
+
+*August 1, 2026 · EN*
+
 ### [When to pick Yamaha Filano over Scoopy on Samui?](https://samui-bikes.com/en/rent-scooter/rent-yamaha-filano/when-to-pick-yamaha-filano-over-scoopy-on-samui/)
 
 I rode the Filano north along Chaweng Beach Road at 7 a.m. and the Scoopy south the same distance before swapping, and the Filano's lighter steering through the gentle camber registered before anything else - small corrections happen without the deliberate wrist input the Scoopy asks at walking pace. Pick the Filano when your riding is urban: its 125cc engine covers everything within Chaweng, Lamai and the northern towns, and at 94 kg versus 97 kg it tips onto the stand and threads tight parking near the Lamai roundabout with less effort. It slots into the narrowest gaps between Lamai Night Market food carts where the Scoopy's wider body struggles. The Scoopy edges ahead only above 90 km/h and on the hills toward the Big Buddha road. My rule after seven years: choose the Filano if the rider is 160 cm or shorter, the riding stays urban, or low-speed comfort matters most.
