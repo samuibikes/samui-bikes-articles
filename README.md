@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Why Yamaha Filano is stylish choice for Samui tourists?](https://samui-bikes.com/en/rent-scooter/rent-yamaha-filano/why-yamaha-filano-is-stylish-choice-for-samui-tourists/)
+
+I chose a white Filano over a row of grey automatics on my first Samui week six years ago because I knew the bike sits in the background of nearly every beach photo you take, and functional-looking rentals never earn their place there. The rounded panels, contrast-stitched seat and chrome-accented mirrors give it a considered quality that identical-spec 125s lack. At the Chaweng rental row the white and cream Filanos leave by 8 a.m., a full hour before the grey and black bikes, and owners pre-book the white variant more than any other scooter. Under the looks sits real substance: the fuel-injected engine, telescopic fork and linked brakes match Honda's equivalents, the chrome is corrosion-treated for tropical humidity, and the seat density suits 40 to 80 km day rides. It draws you in on style, but the light weight, comfortable seat and smooth low-speed feel are what make a Samui beach-and-market day effortless.
+
+*August 2, 2026 · EN*
+
 ### [What are Yamaha Filano engine specs and features?](https://samui-bikes.com/en/rent-scooter/rent-yamaha-filano/what-are-yamaha-filano-engine-specs-and-features/)
 
 I lifted the Filano's seat outside Fisherman's Village market and a full-face helmet dropped in - just - with the visor angled forward. Yamaha lists that bay at 17.3 litres, smaller than the Scoopy's and far below the NMAX, so pack light; a USB port at the top of the compartment keeps a phone or battery pack charged, which matters if you navigate Samui by map. The 125cc single makes about 9.2 horsepower, enough to pull two riders under 150 kg combined on moderate grades, with smooth fuel injection and no surge off the line in stop-start traffic. I ran the 68 km Bo Phut-to-Nathon loop on the 4.2-litre tank and measured around 50 km/l, a day more between fills than the Scoopy. Front disc, rear drum, and a progressive linked brake stopped straight on the wet Lamai junction. Efficiency and braking are the specs that matter; storage is the first limit you hit.
