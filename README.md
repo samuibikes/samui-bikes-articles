@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Where Yamaha Filano shines best spots Koh Samui?](https://samui-bikes.com/en/rent-scooter/rent-yamaha-filano/where-yamaha-filano-shines-best-spots-koh-samui/)
+
+Bo Phut Fishing Village on a quiet February morning is where the Filano makes most sense: the lanes are one-and-a-half scooters wide, and its narrow bar and low cowl thread the 3-metre gaps between the flower pots where a wider NMAX would have me holding my breath. In Chaweng's back lanes before 7 a.m. it passes diagonally parked tuk-tuks and loading delivery bikes on a light throttle. Approaching the Nathon ferry queue at high-season Saturday 2 p.m. I reached the terminal 25 minutes ahead of a following Scoopy purely on width and turning radius - in standstill traffic, dimensions are performance. It parks in 60 cm of space at Choeng Mon without drama. Where it runs out is the climb toward the lake viewpoint two-up. My favourite loop is Chaweng back lanes to Bo Phut via the Mae Nam coastal track and the Bangrak waterfront - under 50 km, made for a light scooter.
+
+*August 3, 2026 · EN*
+
 ### [Why Yamaha Filano is stylish choice for Samui tourists?](https://samui-bikes.com/en/rent-scooter/rent-yamaha-filano/why-yamaha-filano-is-stylish-choice-for-samui-tourists/)
 
 I chose a white Filano over a row of grey automatics on my first Samui week six years ago because I knew the bike sits in the background of nearly every beach photo you take, and functional-looking rentals never earn their place there. The rounded panels, contrast-stitched seat and chrome-accented mirrors give it a considered quality that identical-spec 125s lack. At the Chaweng rental row the white and cream Filanos leave by 8 a.m., a full hour before the grey and black bikes, and owners pre-book the white variant more than any other scooter. Under the looks sits real substance: the fuel-injected engine, telescopic fork and linked brakes match Honda's equivalents, the chrome is corrosion-treated for tropical humidity, and the seat density suits 40 to 80 km day rides. It draws you in on style, but the light weight, comfortable seat and smooth low-speed feel are what make a Samui beach-and-market day effortless.
