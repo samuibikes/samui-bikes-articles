@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which is better Yamaha Filano vs Honda Scoopy? Comparison](https://samui-bikes.com/en/rent-scooter/rent-yamaha-filano/which-is-better-yamaha-filano-vs-honda-scoopy-comparison/)
+
+Riding the Filano north and the Scoopy south from Chaweng at 6:30 a.m. and swapping at the roundabout is still the fastest way to feel the split: the Filano steers with less weight, sits lower and tracks slow corners with a lightness the Scoopy can't match, while the Scoopy feels more planted at 80 km/h. At 162 cm I get both feet flat on the Filano; riders above 175 cm often find it cramped at the knee and prefer the Scoopy's longer footboard. Storage is the real gap - the Filano's 17.3-litre bay won't close over a hat box the Scoopy swallows whole. Fuel favours the Filano at roughly 50 versus 45 to 47 km/l, but that is only about 30 baht across a five-day week. Choose the Filano if you are under 168 cm, ride town and markets and pack light; choose the Scoopy for the island loop, two-up, or speed above 75 km/h.
+
+*August 5, 2026 · EN*
+
 ### [How Yamaha Filano handles Samui hilly roads?](https://samui-bikes.com/en/rent-scooter/rent-yamaha-filano/how-yamaha-filano-handles-samui-hilly-roads/)
 
 I turned the Filano south toward the road climbing above Chaweng Lake one clear March morning: the first 800 metres it took at 55 km/h without drama, but where the grade pitched past 8 per cent it dropped to 45 km/h with the throttle pinned, revving higher than I would like for a sustained climb. On my benchmark 2.8 km Chaweng Lake overlook it ran 40 seconds behind the Scoopy at full throttle, because the 125cc's peak power sits high and the CVT cannot drop a gear on demand. It never stalls; it just slows - irrelevant on the ring road's gentle rises near Bangrak. Descents are where it shines: the linked brakes balance both wheels so you steer straight without juggling levers, even on the wet viewpoint descent. Two-up on the 12 per cent Khao Hua Jook track it runs out of breath. For the mountain roads above Nathon, take the NMAX 155.
