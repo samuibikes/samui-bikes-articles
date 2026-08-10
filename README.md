@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Why Honda Click 125 is most affordable rental on Samui?](https://samui-bikes.com/en/rent-scooter/rent-honda-click-125/why-honda-click-125-is-most-affordable-rental-on-samui/)
+
+Checking three Chaweng shops last January the Click 125 ran 180 to 200 baht a day against the Scoopy's 280 to 320 - a 700 to 910 baht gap over a week that buys a real dinner or a half-day tour. A full day's beach-road riding cost me 42 baht of fuel, the price of a market coconut; a week came to 294 baht, so petrol stops being a budget line. The deposit sits 1,000 to 1,500 baht below an NMAX, and the insurance excess scales down too, so a first-timer's scratches cost less. At 1,870 mm long and 660 mm wide it drops into a 1.2 m beach-road gap in three moves where the NMAX needs five or six, and a punctured rear tyre is 360 baht fitted against the NMAX's 620. For a solo rider in the beach corridor under 40 km a day who values cost over performance, nothing on the island beats it - and that is exactly the point.
+
+*August 10, 2026 · EN*
+
 ### [What are Honda Click 125 fuel economy figures on Samui?](https://samui-bikes.com/en/rent-scooter/rent-honda-click-125/what-are-honda-click-125-fuel-economy-figures-samui/)
 
 I filled the Click 125 from empty at the Second Road PTT in Chaweng and rode a measured 32 km town loop - beach road, market, temple - using 0.67 litres for 47.8 km/l, 8 to 10 km/l above the Scoopy and NMAX on the same route. Held at 70 km/h on the Mae Nam ring road it drops to 41 km/l, because the 125cc sits closer to its ceiling than a bigger engine; its sweet spot is 40 to 55 km/h, exactly the resort-corridor pace most renters ride. The 4.1-litre tank gives roughly 195 km of town range - four beach-to-beach days without refuelling. Riding style is the biggest variable: I measured 51 km/l smooth versus 38 km/l stop-start on the same road, and rolling the throttle over three seconds from a stop recovers most of that. Across the fleet it is the most efficient scooter; on short beach days you can forget fuel entirely.
