@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Where to ride Honda Click 125 around Samui on budget?](https://samui-bikes.com/en/rent-scooter/rent-honda-click-125/where-to-ride-honda-click-125-around-samui-on-budget/)
+
+I mapped the Click 125's home ground early one February morning: the 12 km Chaweng coastal loop from the south beach to Bo Phut Fisherman's Village, mostly under 50 km/h with no real climb until the Choeng Mon headland, done on 0.28 litres. The Chaweng-to-Lamai temple circuit via Wat Khunaram is 28 km and under two hours including a temple stop, the ring road well within the bike's comfort. The flat 22 km west-coast road to Nathon market holds 65 km/h easily, dipping to 55 on the single rubber-plantation rise, with covered parking and a downhill return. The Big Buddha and Fisherman's Village combination runs 19 km with one moderate hill. Its honest boundary is the mountain road above Nathon, where I turn around at the first viewpoint. All four routes stay under 35 km, dodge the steepest grades and return the same day with no fuel planning - a daily convenience machine, not a tourer.
+
+*August 11, 2026 · EN*
+
 ### [Why Honda Click 125 is most affordable rental on Samui?](https://samui-bikes.com/en/rent-scooter/rent-honda-click-125/why-honda-click-125-is-most-affordable-rental-on-samui/)
 
 Checking three Chaweng shops last January the Click 125 ran 180 to 200 baht a day against the Scoopy's 280 to 320 - a 700 to 910 baht gap over a week that buys a real dinner or a half-day tour. A full day's beach-road riding cost me 42 baht of fuel, the price of a market coconut; a week came to 294 baht, so petrol stops being a budget line. The deposit sits 1,000 to 1,500 baht below an NMAX, and the insurance excess scales down too, so a first-timer's scratches cost less. At 1,870 mm long and 660 mm wide it drops into a 1.2 m beach-road gap in three moves where the NMAX needs five or six, and a punctured rear tyre is 360 baht fitted against the NMAX's 620. For a solo rider in the beach corridor under 40 km a day who values cost over performance, nothing on the island beats it - and that is exactly the point.
