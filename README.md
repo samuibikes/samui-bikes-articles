@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How to navigate Samui traffic on Honda Click 125?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-click-125/how-to-navigate-samui-traffic-on-honda-click-125/)
+
+Merging onto the Chaweng Central roundabout at 8:45 a.m. in the delivery rush, I slotted the Click 125 into a one-second gap between a delivery moto and a pickup, at traffic speed in four seconds - its narrow profile fits Samui's roundabout geometry better than any bigger scooter. In a 400 m beach-road jam I filter left of the queue at 15 km/h, its 660 mm width clearing a parked pickup and a moving tuk-tuk with 200 mm each side, no width judgement needed. At uncontrolled junctions I use the light weight to reach 40 km/h in four seconds, faster than the gap closes. On wet painted crossings by Big C the front slid before gripping - it has no ABS, so I brake 20 metres earlier, rear first to weight the front, and avoid the paint. Four rules keep it safe: filter left, ease into roundabouts, brake early off wet paint, and use its light weight decisively.
+
+*August 12, 2026 · EN*
+
 ### [Where to ride Honda Click 125 around Samui on budget?](https://samui-bikes.com/en/rent-scooter/rent-honda-click-125/where-to-ride-honda-click-125-around-samui-on-budget/)
 
 I mapped the Click 125's home ground early one February morning: the 12 km Chaweng coastal loop from the south beach to Bo Phut Fisherman's Village, mostly under 50 km/h with no real climb until the Choeng Mon headland, done on 0.28 litres. The Chaweng-to-Lamai temple circuit via Wat Khunaram is 28 km and under two hours including a temple stop, the ring road well within the bike's comfort. The flat 22 km west-coast road to Nathon market holds 65 km/h easily, dipping to 55 on the single rubber-plantation rise, with covered parking and a downhill return. The Big Buddha and Fisherman's Village combination runs 19 km with one moderate hill. Its honest boundary is the mountain road above Nathon, where I turn around at the first viewpoint. All four routes stay under 35 km, dodge the steepest grades and return the same day with no fuel planning - a daily convenience machine, not a tourer.
