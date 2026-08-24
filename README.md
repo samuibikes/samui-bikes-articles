@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which is better PCX 150 or NMAX 155? Final verdict](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-pcx-150/which-is-better-pcx-150-or-nmax-155-final-verdict/)
+
+I rode the full ring road on the PCX 150 and the NMAX 155 on back-to-back days, same rider and route: the NMAX averaged 71 km/h to the PCX's 68 and held 65 km/h two-up on the climbs where the PCX settled to 58, its 15.4 horsepower outpulling the PCX's 13.0 by 18 per cent above 80 km/h. But end-of-day the PCX left me less fatigued - wider seat, softer suspension, upright bars easing the wrists. A German couple switched off the NMAX mid-week when the pillion's back complained about its firmer rear seat; the PCX's factory two-up calibration fixed it. Storage favours the PCX at 28 litres against 22, plus its smart key, while both have ABS and sit within 50 baht a day. Choose the NMAX for speeds over 75 km/h, gradients or solo distance; choose the PCX for two-up touring, multi-day comfort and smoothness. The NMAX performs better, the PCX feels better.
+
+*August 24, 2026 · EN*
+
 ### [How comfortable is Honda PCX 150 for long Samui rides?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-pcx-150/how-comfortable-is-honda-pcx-150-for-long-samui-rides/)
 
 I rented the PCX 150 for three straight days last October, 50 to 65 km each, and tracked how I felt: no real seat or handlebar fatigue by day three, only mild shoulder tightness from a backpack - where the NMAX had given me wrist fatigue from its more forward lean. On the north coast concrete joins at 60 km/h the deep seat padding softened each one rather than punching through, unlike the Scoopy the next day. As pillion over 44 km to Nathon and back I never stood off the seat, the footrest angle and grab rail keeping me settled through the climbs. The taller fairing and upright bars cut helmet-level wind buffeting at 75 km/h, saving arm and shoulder fatigue over a 60 km day, and the eSP engine stays smooth where the Scoopy's mirrors buzz at idle. For Samui days over 40 km it is the most comfortable 150cc scooter here - clearly ahead of the Scoopy, a step past the NMAX on pillion comfort.
