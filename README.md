@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [When to upgrade to NMAX 155 from smaller scooter on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-nmax-155/when-to-upgrade-to-nmax-155-from-smaller-scooter-samui/)
+
+Three years into guiding I took a Scoopy up the Big Buddha access road and found myself pinned behind a pickup at 25 km/h, throttle wide open - the NMAX 155 clears that same climb at 60 km/h without working. That comparison taught me when to upgrade: the moment you wait for the engine to do something it was not built for. The full 62 km ring road takes two hours on a Scoopy working at 60 km/h or 1h20 on the NMAX cruising 80, a gap that matters once you add heat and fatigue. On the three southern climbs a Scoopy two-up drops to 28 km/h while the NMAX holds 55. A Russian rider swapped after one 45 km day of fighting the machine. Upgrade when your day tops 50 km, includes a gradient, or carries a pillion far - it repays the price difference within the first hour. Beach-to-beach in Chaweng, keep the Scoopy.
+
+*August 27, 2026 · EN*
+
 ### [Who is Yamaha NMAX 155 best suited for on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-nmax-155/who-is-yamaha-nmax-155-best-suited-for-on-samui/)
 
 Seven years ago on my first morning testing the NMAX 155 above Chaweng I held 85 km/h for three minutes with no strain on the engine or my wrists, and that set its character: a scooter for riders who already know what they want. The twist-and-go is the same as the Scoopy's, but the power, the 795 mm seat and the weight all assume experience - I regularly redirect first-timers to the Scoopy because that seat needs a confident two-footed stop. The riders who point at it first are returning tourists who rode a Scoopy last trip, or who ride in Bali and Pai. Its 15 horsepower, roughly 2.5 times the Scoopy's, carried a French couple 80 km round the island two-up without feeling strained, at 35 to 38 km/l. It suits riders who have ridden before, plan a full loop, carry a pillion some days and accept a taller seat; others want the Scoopy.
