@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Why NMAX 155 is top performer for Samui long rides?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-nmax-155/why-nmax-155-is-top-performer-for-samui-long-rides/)
+
+The 62 km counterclockwise ring road with three climbs and a dozen junction pauses is my benchmark for every scooter, and the NMAX 155 returns from it with my core temperature barely risen, no hand fatigue, and a 67 km/h average including stops - numbers no rental scooter in its price bracket matches. At 80 km/h for 20 km straight it stays calm: no handlebar vibration, no sense of the liquid-cooled 155cc working, so 75 to 85 feels like cruising and you arrive with energy. Its rear suspension carries two-up over the Mae Nam concrete joins without bottoming, the section that punishes pillions on smaller bikes. Front ABS removes the mental load of braking hard after long straights. Over three days I measured 36 km/l and a 230 to 240 km range from the 6.6-litre tank - three ring-road laps between fills. It is not Samui's fastest scooter, but it is the fastest that stays comfortable past 80 km.
+
+*August 30, 2026 · EN*
+
 ### [What is Yamaha NMAX 155 ABS performance on Samui roads?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-nmax-155/what-is-yamaha-nmax-155-abs-performance-on-samui-roads/)
 
 Descending the Chaweng Lake viewpoint road when a squall dropped 20 mm in eight minutes, I braked hard at 55 km/h on the first painted line and the NMAX 155's ABS pulsed through the lever and stopped me straight - my first decisive proof of it against mechanical brakes on a wet Samui descent. At the Chaweng junctions hard braking on wet paint produces no lock and no pull to the camber, where non-ABS bikes chatter and drift off-line. It is a single-channel front system with a rear drum: I measured 18 metres to stop from 50 km/h against a non-ABS bike's 22, four metres that decide a collision when a tuk-tuk halts unsignalled. On loose gravel it stops wheel-lock but not lateral slip, so it is an assist, not a substitute for slow speed. It won't make bad riding safe, but it saves good decisions mistimed - which on Samui's wet paint I meet six or seven times a year.
