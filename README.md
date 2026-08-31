@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Where to take Yamaha NMAX 155 on Koh Samui tour?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-nmax-155/where-to-take-yamaha-nmax-155-on-koh-samui-tour/)
+
+I start every full island tour from Chaweng beach road at 5:45 a.m., turning north on the NMAX 155 because the pre-dawn light on Choeng Mon bay is the island's best and the bike reaches it before a single tuk-tuk has started. The narrow northern coastal lane climbs three headlands, and the NMAX absorbs the concrete joins and holds its line through the bends across the first 28 km. Crossing to the shaded west coast at 10 a.m. I held 75 km/h to Nathon market, the ideal mid-tour stop for fruit and coffee. On the mountain road above Nathon it is narrow enough for the single-lane bends that snag a wide XMAX yet strong enough to climb. The hard-packed sand to Laem Sor it takes at walking pace on its 150-series tyre. My definitive circuit - Chaweng, Choeng Mon, Mae Nam, Nathon, mountain road, Lamai - runs 84 km in 2h20 riding, a loop no scooter matches for comfort.
+
+*August 31, 2026 · EN*
+
 ### [Why NMAX 155 is top performer for Samui long rides?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-nmax-155/why-nmax-155-is-top-performer-for-samui-long-rides/)
 
 The 62 km counterclockwise ring road with three climbs and a dozen junction pauses is my benchmark for every scooter, and the NMAX 155 returns from it with my core temperature barely risen, no hand fatigue, and a 67 km/h average including stops - numbers no rental scooter in its price bracket matches. At 80 km/h for 20 km straight it stays calm: no handlebar vibration, no sense of the liquid-cooled 155cc working, so 75 to 85 feels like cruising and you arrive with energy. Its rear suspension carries two-up over the Mae Nam concrete joins without bottoming, the section that punishes pillions on smaller bikes. Front ABS removes the mental load of braking hard after long straights. Over three days I measured 36 km/l and a 230 to 240 km range from the 6.6-litre tank - three ring-road laps between fills. It is not Samui's fastest scooter, but it is the fastest that stays comfortable past 80 km.
