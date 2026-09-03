@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which is better NMAX 155 vs PCX 150 for Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-nmax-155/which-is-better-nmax-155-vs-pcx-150-for-samui/)
+
+I lined the NMAX 155 and PCX 150 up at the Chaweng petrol station one Saturday and rode both south to Nathon: the NMAX pulled out first, ABS pulsing once on wet tarmac by Big C, the PCX beside it with identical midrange but a quieter temperament. The NMAX's underseat bay swallows a full-face helmet and cleared my fins, mask and clothes for the Big Buddha beach run; the PCX closes on half a helmet. On the 35 km Bo Phut-Nathon loop the NMAX returned 42 km/l to the PCX's 38. Coming down the wet Chaweng Lake descent the NMAX's ABS caught a hard front brake cleanly where the base PCX most shops stock chattered on the paint. Neither is wrong: couples sharing one scooter end up on the PCX for its seat and passenger comfort; solo riders bound for the Khao Hua Jook mountain road and the full island loop take the NMAX every time. They answer different questions.
+
+*September 3, 2026 · EN*
+
 ### [How to maximize Yamaha NMAX 155 fuel efficiency on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-nmax-155/how-to-maximize-yamaha-nmax-155-fuel-efficiency-samui/)
 
 Over three days on the same NMAX 155 I changed only my technique and watched the numbers move: aggressive junction starts and high speed gave 31 km/l; smooth acceleration and a steady 70 km/h cruise gave 38; adding a tyre-pressure check before setting out gave 41. Rolling the throttle open over four to five seconds instead of one uses 18 per cent less fuel to reach 60 km/h, and across 20 town junctions that compounds. My rental's tyres were at 165 and 185 kPa against the specified 200 and 225; the Chaweng mechanic corrected them free in 90 seconds and I gained about 3 km/l. The liquid-cooled engine runs rich for its first 3 km, so I plan a 40 km/h town warm-up before ring-road speed. Two-up drops economy 8 to 10 km/l, best offset by inflating to the top of spec. Four habits - daily pressure check, smooth junctions, a 3 km warm-up, packing light two-up - took me from 31 to 40 km/l.
