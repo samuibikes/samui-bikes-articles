@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Rent Honda ADV 160 on Koh Samui](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/)
+
+The Honda ADV 160 offers 164 mm of ground clearance and ABS-equipped adventure geometry that handles...
+
+*September 4, 2026 · EN*
+
 ### [Which is better NMAX 155 vs PCX 150 for Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-nmax-155/which-is-better-nmax-155-vs-pcx-150-for-samui/)
 
 I lined the NMAX 155 and PCX 150 up at the Chaweng petrol station one Saturday and rode both south to Nathon: the NMAX pulled out first, ABS pulsing once on wet tarmac by Big C, the PCX beside it with identical midrange but a quieter temperament. The NMAX's underseat bay swallows a full-face helmet and cleared my fins, mask and clothes for the Big Buddha beach run; the PCX closes on half a helmet. On the 35 km Bo Phut-Nathon loop the NMAX returned 42 km/l to the PCX's 38. Coming down the wet Chaweng Lake descent the NMAX's ABS caught a hard front brake cleanly where the base PCX most shops stock chattered on the paint. Neither is wrong: couples sharing one scooter end up on the PCX for its seat and passenger comfort; solo riders bound for the Khao Hua Jook mountain road and the full island loop take the NMAX every time. They answer different questions.
