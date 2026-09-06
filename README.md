@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [When Honda ADV 160 outperforms regular scooters on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/when-honda-adv-160-outperforms-regular-scooters-samui/)
+
+At Hin Lad waterfall last October I rode the access trail on the ADV 160 beside a friend on an NMAX 155: the trail drops 80 metres over 2.5 km of laterite, loose rock and exposed roots, and the ADV took it seated at 30 km/h while the NMAX needed standing technique and reached the bottom with both tyres marked. That settles when it earns its place - any trail changing surface type more than twice a kilometre. In wet season the plantation tracks above Nathon turn to slick mud in one storm, and its 160 mm clearance and semi-knobby rear found the firm edges after 40 mm of overnight rain. On the deep dry sand approaching Laem Sor it reached the beach where the following NMAX rider stopped and walked. On pure ring road tarmac at 80 km/h it feels less planted than the NMAX. It beats regular scooters on any day with an off-tarmac section, a wet jungle track or a beach approach that changes surface twice.
+
+*September 6, 2026 · EN*
+
 ### [Who needs Honda ADV 160 adventure scooter on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/who-needs-honda-adv-160-adventure-scooter-on-samui/)
 
 At the Chaweng rental strip last March I watched a man walk past the Scoopy and NMAX row straight to the ADV 160, check the tyre tread, bounce the front suspension and ask about the Hin Lad waterfall track before he asked the price - functionality first, cost second, the consistent ADV renter pattern. Behind one on the 4 km dirt track above Ban Bangrak I stayed managing my borrowed NMAX while the ADV rider simply navigated, seated, at 30 km/h over roots and ruts. On the 600 m compacted sand and gravel to Silver Beach its tyre profile and higher clearance kept me clear where the NMAX needed 15 km/h and a ready foot. A French photographer rents one weekly to reach plantation tracks tuk-tuks refuse. It is the wrong pick for tarmac-only days, where its weight costs ring road composure. It suits the experienced rider planning at least one off-tarmac section who will trade some road polish for confidence on dirt and sand.
