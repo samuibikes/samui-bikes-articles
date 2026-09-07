@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [What is Honda ADV 160 ground clearance? Offroad ability](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/what-is-honda-adv-160-ground-clearance-offroad-ability/)
+
+On the steepest root crossing above the Nathon plantation last October I put a folding ruler under the ADV 160 and read 158 mm - its specified 160 mm clearance is real, and the same root scrapes the NMAX's 135 mm undercarriage, a 25 mm gap that decides between momentum and a stopped engine. Its 100/80-14 front and 120/70-13 rear semi-knobby tyres are not aggressive blocks but channel water and hold loose laterite where the NMAX's road tyres walked sideways. The 120 mm front suspension travel against the NMAX's 95 absorbs concrete joins in one compression instead of a double bounce, and multiplies over stepped roots. A plastic underbelly guard and raised exhaust took incidental rock contact on Hin Lad that grazed the NMAX's bare sump. It is no dirt bike - deep sand and loose rock still need weight-back technique and walking pace. But its 160 mm clearance and semi-knobby tyres lift it well above the scooter fleet for Samui's plantation and beach tracks.
+
+*September 7, 2026 · EN*
+
 ### [When Honda ADV 160 outperforms regular scooters on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/when-honda-adv-160-outperforms-regular-scooters-samui/)
 
 At Hin Lad waterfall last October I rode the access trail on the ADV 160 beside a friend on an NMAX 155: the trail drops 80 metres over 2.5 km of laterite, loose rock and exposed roots, and the ADV took it seated at 30 km/h while the NMAX needed standing technique and reached the bottom with both tyres marked. That settles when it earns its place - any trail changing surface type more than twice a kilometre. In wet season the plantation tracks above Nathon turn to slick mud in one storm, and its 160 mm clearance and semi-knobby rear found the firm edges after 40 mm of overnight rain. On the deep dry sand approaching Laem Sor it reached the beach where the following NMAX rider stopped and walked. On pure ring road tarmac at 80 km/h it feels less planted than the NMAX. It beats regular scooters on any day with an off-tarmac section, a wet jungle track or a beach approach that changes surface twice.
