@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Why ADV 160 is best for Samui jungle and beach roads?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/why-adv-160-is-best-for-samui-jungle-and-beach-roads/)
+
+On the ADV 160 last October I rode a rooted Hin Lad descent I had walked a Scoopy through two years earlier: the Scoopy clears 110 mm, the ADV 160, and that 50 mm is the whole difference between walking and riding, no advanced technique required. On the loose final 150 m to Bang Po beach its semi-knobby rear found edge traction where an NMAX's road tyre had stopped me the month before. After an overnight storm I rode 6 km of red laterite mud above the Nathon plantations at 20 to 25 km/h while every other scooter that morning turned back before halfway. Its plastic underbelly guard took two rock contacts I never noticed, letting me hold rhythm instead of picking a line around each obstacle. A CRF150L trail bike went further where the track narrowed below the ADV's bar width - it is not a trail bike. But it is the only rental scooter I trust to finish a mixed-surface Samui route without nursing its limits.
+
+*September 8, 2026 · EN*
+
 ### [What is Honda ADV 160 ground clearance? Offroad ability](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/what-is-honda-adv-160-ground-clearance-offroad-ability/)
 
 On the steepest root crossing above the Nathon plantation last October I put a folding ruler under the ADV 160 and read 158 mm - its specified 160 mm clearance is real, and the same root scrapes the NMAX's 135 mm undercarriage, a 25 mm gap that decides between momentum and a stopped engine. Its 100/80-14 front and 120/70-13 rear semi-knobby tyres are not aggressive blocks but channel water and hold loose laterite where the NMAX's road tyres walked sideways. The 120 mm front suspension travel against the NMAX's 95 absorbs concrete joins in one compression instead of a double bounce, and multiplies over stepped roots. A plastic underbelly guard and raised exhaust took incidental rock contact on Hin Lad that grazed the NMAX's bare sump. It is no dirt bike - deep sand and loose rock still need weight-back technique and walking pace. But its 160 mm clearance and semi-knobby tyres lift it well above the scooter fleet for Samui's plantation and beach tracks.
