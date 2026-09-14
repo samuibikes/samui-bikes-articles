@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Where to go offroad on Honda ADV 160 Koh Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/where-to-go-offroad-on-honda-adv-160-koh-samui/)
+
+The Hin Lad waterfall trail starts on tarmac behind the temple 2 km south of Nathon and drops 80 metres over 2.5 km of laterite, root crossings and a stream ford - on the ADV 160 in dry season it is 25 minutes down, 35 up for anyone with two years of scooter experience. Above the Nathon rubber plantation a farm-road network runs 8 km into the hills; carry offline maps and two litres of water for a half-day. Three northern beach access tracks between Mae Nam and Bangrak reach the shore through plantation land, two with loose sand needing the semi-knobby tyres, all closed to tuk-tuks. Silver Beach's 600 m track shifts concrete-gravel-sand without a technique change, and the west coast plantation network climbs 14 km to views no ring road reaches. My full day - Nathon plantation, Hin Lad, Silver Beach, Bang Po - runs 62 km at 40 per cent dirt; no other rental scooter finishes it all.
+
+*September 14, 2026 · EN*
+
 ### [Why ADV 160 is best for Samui jungle and beach roads?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/why-adv-160-is-best-for-samui-jungle-and-beach-roads/)
 
 On the ADV 160 last October I rode a rooted Hin Lad descent I had walked a Scoopy through two years earlier: the Scoopy clears 110 mm, the ADV 160, and that 50 mm is the whole difference between walking and riding, no advanced technique required. On the loose final 150 m to Bang Po beach its semi-knobby rear found edge traction where an NMAX's road tyre had stopped me the month before. After an overnight storm I rode 6 km of red laterite mud above the Nathon plantations at 20 to 25 km/h while every other scooter that morning turned back before halfway. Its plastic underbelly guard took two rock contacts I never noticed, letting me hold rhythm instead of picking a line around each obstacle. A CRF150L trail bike went further where the track narrowed below the ADV's bar width - it is not a trail bike. But it is the only rental scooter I trust to finish a mixed-surface Samui route without nursing its limits.
