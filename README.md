@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How to handle Honda ADV 160 on muddy Samui trails?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/how-to-handle-honda-adv-160-on-muddy-samui-trails/)
+
+After 35 mm of overnight rain I took the ADV 160 onto the Nathon plantation laterite in mud 40 to 60 mm deep over firmer earth, and the rule that morning was speed above 15 km/h for gyroscopic stability - below 10 the rear wandered, above 15 it tracked. From wet-laterite stops I open the throttle over three to four seconds; a sudden twist spins the semi-knobby rear and steps the bike sideways. Entering the Silver Beach sand I shift my hips rearward to lighten the front so it skims instead of ploughing, both feet staying on the pegs - a dropped foot becomes an unpredictable pivot. Descending the wet Nathon track I use rear brake only on loose sections, since front brake on wet laterite ploughs the tyre. On rooted sections I hold 25 km/h and steer with body weight, not the bars, to keep a bar end off the wood. Five habits make this island's trails genuinely accessible; learn them dry first.
+
+*September 15, 2026 · EN*
+
 ### [Where to go offroad on Honda ADV 160 Koh Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-160/where-to-go-offroad-on-honda-adv-160-koh-samui/)
 
 The Hin Lad waterfall trail starts on tarmac behind the temple 2 km south of Nathon and drops 80 metres over 2.5 km of laterite, root crossings and a stream ford - on the ADV 160 in dry season it is 25 minutes down, 35 up for anyone with two years of scooter experience. Above the Nathon rubber plantation a farm-road network runs 8 km into the hills; carry offline maps and two litres of water for a half-day. Three northern beach access tracks between Mae Nam and Bangrak reach the shore through plantation land, two with loose sand needing the semi-knobby tyres, all closed to tuk-tuks. Silver Beach's 600 m track shifts concrete-gravel-sand without a technique change, and the west coast plantation network climbs 14 km to views no ring road reaches. My full day - Nathon plantation, Hin Lad, Silver Beach, Bang Po - runs 62 km at 40 per cent dirt; no other rental scooter finishes it all.
