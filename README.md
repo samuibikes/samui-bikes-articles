@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [When Yamaha XMAX 300 is worth renting on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-xmax-300/when-yamaha-xmax-300-is-worth-renting-on-samui/)
+
+Last April I mapped a Samui grand circuit plus Nathon market and a southern-cape detour - 143 km - and took the XMAX 300 because no other rental scooter finishes that distance without rider or engine visibly tiring; at 90 km/h two-up on the northern ring road it was working at 60 per cent of its range. On the 14 km Nathon-Bangrak straight it cruises 90 km/h with no vibration where the NMAX sits close to its ceiling, a 10 km/h margin that decides any run committing to 30 km-plus of ring road. Across four days the taller screen, longer seat and wide floorboard left me measurably fresher by day four. Watching a French couple's NMAX labour up the Lamai gradient, the XMAX carried two at 60 km/h with no engine-note rise. For a Chaweng-Lamai day under 40 km I take the NMAX and save 270 baht. It earns its premium when the day tops 60 km, includes a gradient or runs sustained two-up - meet two of the three.
+
+*September 20, 2026 · EN*
+
 ### [Who rides Yamaha XMAX 300 on Koh Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-xmax-300/who-rides-yamaha-xmax-300-on-koh-samui/)
 
 At the Chaweng rental strip the XMAX 300 customer arrives already knowing which model they want - they skip the Scoopy comparison, walk over, check the tyres, ask about ABS and pay without hesitation, because they ride 300cc and above at home. Passing two of them at 90 km/h north of Mae Nam last March, both sat with the posture of people used to large machines. On the Nathon pier road I counted four in one morning, all carrying pillions: the 39-litre underseat storage, wider rear seat and 28-horsepower engine make it the only scooter here genuinely comfortable for two across an 80 km day. A German rider took one across Samui, Phangan and Tao in a week on its 12-litre tank. It is wrong for tight-street beach hoppers and first-timers - one caught the wide frame out at a Lamai T-junction. It suits riders with two years' experience planning 60 km-plus days, often two-up, willing to pay 30 to 40 per cent over the NMAX.
