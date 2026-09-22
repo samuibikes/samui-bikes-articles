@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [What is Yamaha XMAX 300 storage and comfort features?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-xmax-300/what-is-yamaha-xmax-300-storage-and-comfort-features/)
+
+I loaded the XMAX 300's underseat bay methodically at the Chaweng shop - full-face helmet, open-face helmet, a two-day dry bag and a 1.5-litre bottle - and the lid closed flat; the 39-litre figure is genuinely usable touring space where the NMAX takes one helmet only. Riding pillion 28 km to Mae Nam, its wider rear seat, firmer suspension and grab rail softened the concrete joins past Fisherman's Village that an NMAX passes straight through - it is built for a pillion who stays for hours. At 85 km/h the taller screen deflects air at chest level, cutting the effort of holding posture over a long coastal section. The dual USB port added 40 per cent to my phone across 35 km to Hin Ta, turning navigation into a non-issue. The 795 mm seat is 30 mm above the NMAX, needing a confident lean-park below 168 cm. Its storage, windscreen and pillion comfort clearly beat any 150cc - the only scooter here I would tour on for days without regret.
+
+*September 22, 2026 · EN*
+
 ### [When Yamaha XMAX 300 is worth renting on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-xmax-300/when-yamaha-xmax-300-is-worth-renting-on-samui/)
 
 Last April I mapped a Samui grand circuit plus Nathon market and a southern-cape detour - 143 km - and took the XMAX 300 because no other rental scooter finishes that distance without rider or engine visibly tiring; at 90 km/h two-up on the northern ring road it was working at 60 per cent of its range. On the 14 km Nathon-Bangrak straight it cruises 90 km/h with no vibration where the NMAX sits close to its ceiling, a 10 km/h margin that decides any run committing to 30 km-plus of ring road. Across four days the taller screen, longer seat and wide floorboard left me measurably fresher by day four. Watching a French couple's NMAX labour up the Lamai gradient, the XMAX carried two at 60 km/h with no engine-note rise. For a Chaweng-Lamai day under 40 km I take the NMAX and save 270 baht. It earns its premium when the day tops 60 km, includes a gradient or runs sustained two-up - meet two of the three.
