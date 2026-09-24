@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Where to tour Koh Samui and beyond on XMAX 300?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-xmax-300/where-to-tour-koh-samui-and-beyond-on-xmax-300/)
+
+Leaving Chaweng at 6 a.m. the XMAX 300 covers the counterclockwise ring road to Nathon in 48 minutes of riding, holding 85 km/h through the coast, plantations and three climbs without the engine stretching - 65 minutes and purposeful on the NMAX, a warm-up here. The Nathon mountain road climbs 340 metres in 6 km to a 12 per cent pitch, and two-up it held 55 km/h with no CVT hunting while a Scoopy and Filano at the summit looked finished. It loads onto the Thong Sala ferry in the standard vehicle lane for a 70 km Koh Phangan day whose steeper gradients only the XMAX or a motorbike shrugs off. The hard-packed Laem Sor cape track, with two sandy sections, it takes at 35 to 40 km/h on its 150-series tyre, and it carries two-night luggage with no handling change. My calibration route - Chaweng, Choeng Mon, Nathon, mountain road, Laem Sor, Lamai - runs 94 km in 2h35, a loop no other scooter finishes cleanly.
+
+*September 24, 2026 · EN*
+
 ### [Why XMAX 300 is ultimate touring scooter for Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-xmax-300/why-xmax-300-is-ultimate-touring-scooter-for-samui/)
 
 On the mountain road access climb above Nathon two-up last March the XMAX 300 held 65 km/h on a gradient that drops a solo NMAX to 45 - its 28 horsepower against the NMAX's 15 treats an incline as background noise, not an event. On the full 84 km island circuit I reached Chaweng with 40 minutes of usable energy left, where the NMAX had left me fit only for dinner, its longer suspension travel soaking the north coast joins and broken Laem Sor tarmac without my arms buffering each hit. Over three days I measured 32 to 34 km/l, a 380 to 400 km range from the 12-litre tank - six ring-road laps between fills, so petrol leaves the equation. Behind the windscreen at 85 km/h airflow shifts from pressure to managed deflection, saving real fatigue past 50 km. For a demanding Samui touring day - 80 km-plus, mixed gradients, two riders, luggage - it is the only scooter that leaves both fresh; the NMAX comes next.
