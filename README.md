@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How Yamaha XMAX 300 handles island highway at speed?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-xmax-300/how-yamaha-xmax-300-handles-island-highway-at-speed/)
+
+On the 14 km Nathon-Bangrak straight I held the XMAX 300 at 90 km/h the whole way without lifting: engine calm, handlebars still, the CVT settled into top ratio inside the first kilometre - at 90 it is cruising, not working, which changes how a two-hour ring-road day costs you. When a delivery moto stopped across two lanes south of Central Festival, its dual-channel ABS caught both wheels from 80 km/h and stopped me straight inside 22 metres, the rear stability the real upgrade over the NMAX's single-channel front. On the west coast at 85 km/h the taller screen deflects the Gulf headwind above helmet level, saving upper-body effort over 40 km. Tight mountain bends need earlier braking and a wider line, a technique motorbike riders find natural. It returns 31 to 33 km/l for a 370 to 395 km range, trading 10 per cent efficiency for 60 per cent more range than the NMAX. Above 80 km/h it is the fleet's most composed scooter, and earns its premium there.
+
+*September 25, 2026 · EN*
+
 ### [Where to tour Koh Samui and beyond on XMAX 300?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-xmax-300/where-to-tour-koh-samui-and-beyond-on-xmax-300/)
 
 Leaving Chaweng at 6 a.m. the XMAX 300 covers the counterclockwise ring road to Nathon in 48 minutes of riding, holding 85 km/h through the coast, plantations and three climbs without the engine stretching - 65 minutes and purposeful on the NMAX, a warm-up here. The Nathon mountain road climbs 340 metres in 6 km to a 12 per cent pitch, and two-up it held 55 km/h with no CVT hunting while a Scoopy and Filano at the summit looked finished. It loads onto the Thong Sala ferry in the standard vehicle lane for a 70 km Koh Phangan day whose steeper gradients only the XMAX or a motorbike shrugs off. The hard-packed Laem Sor cape track, with two sandy sections, it takes at 35 to 40 km/h on its 150-series tyre, and it carries two-night luggage with no handling change. My calibration route - Chaweng, Choeng Mon, Nathon, mountain road, Laem Sor, Lamai - runs 94 km in 2h35, a loop no other scooter finishes cleanly.
