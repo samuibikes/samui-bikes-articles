@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which is better XMAX 300 vs Honda Forza on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-xmax-300/which-is-better-xmax-300-vs-honda-forza-on-samui/)
+
+I booked the XMAX 300 for half a week and a Honda Forza 350 for the other half, running the same ring road circuit, and the differences were smaller than the spec sheets suggest and more useful. Loaded with two helmets, a dry bag and a camera bag, the XMAX swallowed everything under the seat flat while the Forza forced the camera bag into its front cubby - the 39 against 28 litres reorganises what packs without a top box. On the Fisherman's Village-Choeng Mon concrete joins at 65 km/h the XMAX's two-up suspension stayed smooth where the Forza felt firmer. The Forza's screen adjusts higher, a real edge above 180 cm but a wash for the 165 to 180 cm majority, and its ABS pulses more aggressively - 19 metres to the XMAX's 20 from 70 km/h wet. Choose the XMAX for storage and two-up suspension, the Forza for windscreen and brake feel - for most touring couples with luggage over 70 km, the XMAX.
+
+*September 26, 2026 · EN*
+
 ### [How Yamaha XMAX 300 handles island highway at speed?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-yamaha-xmax-300/how-yamaha-xmax-300-handles-island-highway-at-speed/)
 
 On the 14 km Nathon-Bangrak straight I held the XMAX 300 at 90 km/h the whole way without lifting: engine calm, handlebars still, the CVT settled into top ratio inside the first kilometre - at 90 it is cruising, not working, which changes how a two-hour ring-road day costs you. When a delivery moto stopped across two lanes south of Central Festival, its dual-channel ABS caught both wheels from 80 km/h and stopped me straight inside 22 metres, the rear stability the real upgrade over the NMAX's single-channel front. On the west coast at 85 km/h the taller screen deflects the Gulf headwind above helmet level, saving upper-body effort over 40 km. Tight mountain bends need earlier braking and a wider line, a technique motorbike riders find natural. It returns 31 to 33 km/l for a 370 to 395 km range, trading 10 per cent efficiency for 60 per cent more range than the NMAX. Above 80 km/h it is the fleet's most composed scooter, and earns its premium there.
