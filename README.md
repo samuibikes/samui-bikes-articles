@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Rent Yadea G5 Pro on Koh Samui](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/)
+
+The Yadea G5 Pro covers 80-100 km on a single charge - enough for a Chaweng-to-Maenam coastal run an...
+
+*September 28, 2026 · EN*
+
 ### [E-scooter rental](https://samui-bikes.com/en/e-scooter-rental-koh-samui/)
 
 I took a Yadea G5 Pro out to Bophut on a quiet weekday and the first thing I noticed was the silence: no engine noise between the fishing village houses, just tyre hum on the road. Electric scooters suit Koh Samui better than most people expect. Distances here are short, the ring road is 51 km end to end, and a full charge covers a day of beach hopping with range left over. The G5 Pro and NIU MQi+ Sport are the easy ones, light with low seats, twist and go. The Super Soco CPx and NIU NQi GTS carry a removable battery you can take up to your room and charge overnight from a normal socket. The Horwin EK3 has the most punch off the line for hills. No fuel stops, no petrol smell, no engine heat on your legs in traffic. Daily and weekly rates, delivery across the island.
