@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [When Yadea G5 Pro range is enough for Samui riding?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/when-yadea-g5-pro-range-is-enough-for-samui-riding/)
+
+From a full charge I rode the Chaweng-Lamai-Hin Ta beach loop, 28 km, and used 31 per cent - three laps before a charge, so any beach-loop holiday has abundant range on the G5 Pro, not merely adequate. A fuller northern day - Mae Nam market, Big Buddha, back, 42 km - left 52 per cent, its sweet spot because the whole route stays flat and under 50 km/h, exactly the motor's efficient band. Three days of town errands never topped 22 per cent daily, so resort riders charge every two or three days. Elevation is where it bites: the 6 km climb to the Nathon viewpoint took 35 per cent against 8 for the same distance flat, forcing a direct, moderate-speed return. A 2.5-hour lunch charge at the viewpoint café added 40 per cent, pushing the day past 100 km. Flat days under 60 km need no charge stop; above that plan a top-up, and on hilly routes charge after the climb - otherwise rent petrol.
+
+*October 10, 2026 · EN*
+
 ### [Who should choose Yadea G5 Pro for Samui eco travel?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/who-should-choose-yadea-g5-pro-for-samui-eco-travel/)
 
 At the Chaweng rental shop a Dutch woman bypassed every petrol scooter to spend ten minutes on the Yadea G5 Pro - battery level, charge time, whether the motor would disturb the jungle - because she wanted to cover more ground without adding to the exhaust haze over the beach road at 9 a.m. She extended for the week. Riding it 34 km to Mae Nam market and back cost 38 per cent of the battery, so beach-corridor day-trippers never think about charging. Cycling the north coast at dawn I was passed by one at 45 km/h making only a faint whir, and arriving silently at Choeng Mon bay genuinely matters. On the Nathon mountain road it slowed hard above 8 per cent gradient, needing a walking-pace push - it is wrong for hilly or 60 km-plus days. It fits the eco-minded rider who stays under 50 km near the coastal charging network and prizes silent, smooth running; others soon reach for the NMAX.
