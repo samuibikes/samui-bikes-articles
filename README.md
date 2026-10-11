@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Why Yadea G5 Pro is best e scooter rental on Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/why-yadea-g5-pro-is-best-e-scooter-rental-on-samui/)
+
+I set out from Chaweng at 7 a.m. fully charged and returned at 5:30 p.m. after 68 km of coastal riding on 18 per cent left - the day I stopped calling the G5 Pro a compromise and started recommending it as a capable coastal machine no other e-scooter here could match on that route. In a 40-minute Samui downpour the IP67-rated motor ran fine, the display stayed legible and the ABS stopped me clean on wet paint at the roundabout - not a spec-sheet number but a daily tropical requirement. Its 14-inch wheels and longer suspension soak the Fisherman's Village concrete joins more completely than the NIU MQi+ I rode the week before. Its 55 km/h ceiling matches beach-corridor traffic exactly, only reaching a limit at 80 km/h ring road speed most holiday riders never touch. Arriving silently at dawn Choeng Mon, the motor below the surf, is the real reward. It leads by nailing all three: coastal-matched range, tropic-proof build, petrol-rivalling smoothness.
+
+*October 11, 2026 · EN*
+
 ### [What is Yadea G5 Pro battery range and charging time?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/what-is-yadea-g5-pro-battery-range-and-charging-time/)
 
 From 100 per cent I rode a mapped 78 km flat coastal loop - Chaweng, Mae Nam, Nathon, back - at 42 km/h and returned on 6 per cent, so the specified 80 km range holds on Samui's coast. Elevation rewrites it: the 6 km Nathon climb drank 35 per cent, 4.4 times the flat rate, and regen recovered only 3 per cent downhill, so subtract 30 to 40 per cent on a climbing day. On a 220V hotel socket it went 22 to 100 per cent in 7h45, roughly 8 to 9 hours from empty; a 2-hour café stop recovers 20 to 25 per cent, good for 16 to 20 km more. Speed drives it: 0.9 per cent per km at 30 km/h, 1.2 at 45, 1.6 at 55, so 40 to 45 km/h is the sweet spot. Measured across 40-plus sessions: 75 to 85 km flat, 45 to 55 with hills, 8 to 9 hours to charge - real figures, not claims.
