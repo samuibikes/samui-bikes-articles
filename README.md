@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [What is Yadea G5 Pro battery range and charging time?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/what-is-yadea-g5-pro-battery-range-and-charging-time/)
+
+From 100 per cent I rode a mapped 78 km flat coastal loop - Chaweng, Mae Nam, Nathon, back - at 42 km/h and returned on 6 per cent, so the specified 80 km range holds on Samui's coast. Elevation rewrites it: the 6 km Nathon climb drank 35 per cent, 4.4 times the flat rate, and regen recovered only 3 per cent downhill, so subtract 30 to 40 per cent on a climbing day. On a 220V hotel socket it went 22 to 100 per cent in 7h45, roughly 8 to 9 hours from empty; a 2-hour café stop recovers 20 to 25 per cent, good for 16 to 20 km more. Speed drives it: 0.9 per cent per km at 30 km/h, 1.2 at 45, 1.6 at 55, so 40 to 45 km/h is the sweet spot. Measured across 40-plus sessions: 75 to 85 km flat, 45 to 55 with hills, 8 to 9 hours to charge - real figures, not claims.
+
+*October 11, 2026 · EN*
+
 ### [When Yadea G5 Pro range is enough for Samui riding?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/when-yadea-g5-pro-range-is-enough-for-samui-riding/)
 
 From a full charge I rode the Chaweng-Lamai-Hin Ta beach loop, 28 km, and used 31 per cent - three laps before a charge, so any beach-loop holiday has abundant range on the G5 Pro, not merely adequate. A fuller northern day - Mae Nam market, Big Buddha, back, 42 km - left 52 per cent, its sweet spot because the whole route stays flat and under 50 km/h, exactly the motor's efficient band. Three days of town errands never topped 22 per cent daily, so resort riders charge every two or three days. Elevation is where it bites: the 6 km climb to the Nathon viewpoint took 35 per cent against 8 for the same distance flat, forcing a direct, moderate-speed return. A 2.5-hour lunch charge at the viewpoint café added 40 per cent, pushing the day past 100 km. Flat days under 60 km need no charge stop; above that plan a top-up, and on hilly routes charge after the climb - otherwise rent petrol.
