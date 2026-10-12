@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Where to charge Yadea G5 Pro around Koh Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/where-to-charge-yadea-g5-pro-around-koh-samui/)
+
+I plugged the G5 Pro into the outdoor point at my Chaweng hotel's bike parking at 6 p.m. and it was full by 8 a.m. - the charger draws just 4.5 amps from a standard 220V socket, so the overnight hotel charge is the simplest, most reliable method. A two-hour lunch at a Fisherman's Village waterfront café added 22 per cent, good for 16 km more, and I have mapped about 12 coastal cafés that allow it without charging for the power. The Big C Chaweng parking level has two 220V e-vehicle points that gave 18 per cent over a 90-minute shop. One midpoint café charge extends a north coast day from 68 to 85 km for the cost of a coffee. Where you cannot rely on it is the mountain road and interior - no cafés, no sockets, a 12 km dead zone I once entered on 28 per cent. Charge at hotels first, then coastal cafés or Big C; the interior has nowhere to plug in.
+
+*October 12, 2026 · EN*
+
 ### [Why Yadea G5 Pro is best e scooter rental on Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/why-yadea-g5-pro-is-best-e-scooter-rental-on-samui/)
 
 I set out from Chaweng at 7 a.m. fully charged and returned at 5:30 p.m. after 68 km of coastal riding on 18 per cent left - the day I stopped calling the G5 Pro a compromise and started recommending it as a capable coastal machine no other e-scooter here could match on that route. In a 40-minute Samui downpour the IP67-rated motor ran fine, the display stayed legible and the ABS stopped me clean on wet paint at the roundabout - not a spec-sheet number but a daily tropical requirement. Its 14-inch wheels and longer suspension soak the Fisherman's Village concrete joins more completely than the NIU MQi+ I rode the week before. Its 55 km/h ceiling matches beach-corridor traffic exactly, only reaching a limit at 80 km/h ring road speed most holiday riders never touch. Arriving silently at dawn Choeng Mon, the motor below the surf, is the real reward. It leads by nailing all three: coastal-matched range, tropic-proof build, petrol-rivalling smoothness.
