@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How to plan a day trip on Yadea G5 Pro on Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/how-to-plan-a-day-trip-on-yadea-g5-pro-on-samui/)
+
+Planning a G5 Pro day I start from the map, not the attraction: fix a 55 km route first, then find attractions and a midpoint charging café inside it - building outward from a destination is the road to range anxiety by 3 p.m. I ask the shop for the morning battery; a 94 per cent start cost me 5 km, so I dropped a coastal extension. Midday I plug in at a Fisherman's Village café for a two-hour lunch, recovering 22 per cent while it feels like lunch, not a constraint. Speed is the lever: 50 km/h drank 19 per cent over 12 km where 40 took 11. I build a 15 per cent return margin for headwind and the faster drain of the last fifth. My template never varies - check the charge, plan within 80 per cent of range, take a two-hour midpoint charge, keep a 15 per cent margin - zero range failures in 40-plus trips.
+
+*October 13, 2026 · EN*
+
 ### [Where to charge Yadea G5 Pro around Koh Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/where-to-charge-yadea-g5-pro-around-koh-samui/)
 
 I plugged the G5 Pro into the outdoor point at my Chaweng hotel's bike parking at 6 p.m. and it was full by 8 a.m. - the charger draws just 4.5 amps from a standard 220V socket, so the overnight hotel charge is the simplest, most reliable method. A two-hour lunch at a Fisherman's Village waterfront café added 22 per cent, good for 16 km more, and I have mapped about 12 coastal cafés that allow it without charging for the power. The Big C Chaweng parking level has two 220V e-vehicle points that gave 18 per cent over a 90-minute shop. One midpoint café charge extends a north coast day from 68 to 85 km for the cost of a coffee. Where you cannot rely on it is the mountain road and interior - no cafés, no sockets, a 12 km dead zone I once entered on 28 per cent. Charge at hotels first, then coastal cafés or Big C; the interior has nowhere to plug in.
