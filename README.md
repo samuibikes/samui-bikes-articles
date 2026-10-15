@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which is better Super Soco CPx vs Yadea G5 Pro?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-super-soco-cpx/which-is-better-super-soco-cpx-vs-yadea-g5-pro/)
+
+I rode the Super Soco CPx and Yadea G5 Pro on back-to-back mornings over the same 38 km north coast circuit: the CPx averaged 55 km/h on 46 per cent and hit 70 on the straight, the G5 Pro 50 km/h on 44 per cent and 60 flat. On the ring road the CPx's 70 km/h edge matters where traffic runs 65 to 70; below 50 km/h they ride identically. On matched flat routes the G5 Pro draws 1.10 per cent per km to the CPx's 1.15, about 4 km more range. The CPx wins decisively on the swap - a full pack in under 5 minutes versus the G5 Pro's fixed 5-hour charge - so only it extends a 90 km-plus day without a long café stop. But the G5 Pro has the app, GPS anti-theft and smoother 14-inch ride. It is fastest against smartest: the CPx wins on speed and battery swap, the G5 Pro on connectivity and a smoother ride.
+
+*October 15, 2026 · EN*
+
 ### [How to plan a day trip on Yadea G5 Pro on Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-yadea-g5-pro/how-to-plan-a-day-trip-on-yadea-g5-pro-on-samui/)
 
 Planning a G5 Pro day I start from the map, not the attraction: fix a 55 km route first, then find attractions and a midpoint charging café inside it - building outward from a destination is the road to range anxiety by 3 p.m. I ask the shop for the morning battery; a 94 per cent start cost me 5 km, so I dropped a coastal extension. Midday I plug in at a Fisherman's Village café for a two-hour lunch, recovering 22 per cent while it feels like lunch, not a constraint. Speed is the lever: 50 km/h drank 19 per cent over 12 km where 40 took 11. I build a 15 per cent return margin for headwind and the faster drain of the last fifth. My template never varies - check the charge, plan within 80 per cent of range, take a two-hour midpoint charge, keep a 15 per cent margin - zero range failures in 40-plus trips.
