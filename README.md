@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [When is cycling on Trek Marlin 5 best on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-trek-marlin-5/when-is-cycling-on-trek-marlin-5-best-on-samui/)
+
+I rode my fastest ring road - 50 km in 3h15 - on the Marlin 5 in cool, dry January air, and December through April is the optimal window: 25 to 30 degrees, low humidity, little rain, trade winds cooling the east coast. Whatever the season, the real window is 6 to 10 a.m.; leaving Chaweng at 6 in April I did 40 km before the heat made more effort unpleasant, a limit set by Samui's climate, not the bike. October and November are high-risk monsoon - I turned back after 15 km ahead of a fast Gulf thunderstorm, with daily rain of 100 to 300 mm flooding roads no bicycle handles safely. March and April give the driest, longest circuits and best coastal light, reliable from 6 to 11 a.m. Ride the Marlin 5 December to April, always before 10 a.m.; March and April give the longest dry windows, while October and November monsoon ends rides early.
+
+*October 16, 2026 · EN*
+
 ### [Which is better Super Soco CPx vs Yadea G5 Pro?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-super-soco-cpx/which-is-better-super-soco-cpx-vs-yadea-g5-pro/)
 
 I rode the Super Soco CPx and Yadea G5 Pro on back-to-back mornings over the same 38 km north coast circuit: the CPx averaged 55 km/h on 46 per cent and hit 70 on the straight, the G5 Pro 50 km/h on 44 per cent and 60 flat. On the ring road the CPx's 70 km/h edge matters where traffic runs 65 to 70; below 50 km/h they ride identically. On matched flat routes the G5 Pro draws 1.10 per cent per km to the CPx's 1.15, about 4 km more range. The CPx wins decisively on the swap - a full pack in under 5 minutes versus the G5 Pro's fixed 5-hour charge - so only it extends a 90 km-plus day without a long café stop. But the G5 Pro has the app, GPS anti-theft and smoother 14-inch ride. It is fastest against smartest: the CPx wins on speed and battery swap, the G5 Pro on connectivity and a smoother ride.
