@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [When to rent Scott Aspect 950 bicycle on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-scott-aspect-950/when-to-rent-scott-aspect-950-bicycle-on-samui/)
+
+I did a 40 km ring road on the Aspect 950 in cool dry January air, the Nathon climb in ideal conditions - December to April brings Samui's lowest humidity, when the drivetrain shifts precisely and the Suntour fork responds without tropical stiffness. Leaving Bo Phut at 6 a.m. in February I covered 35 km before the heat closed the window at 9:30, and its relaxed geometry makes that early start easier to commit to for riders who dislike aggressive positions. Multi-day rentals peak in December and January, its corrosion-resistant frame and stable indexing suiting consecutive daily circuits. In October I turned back after 20 km ahead of building monsoon cloud - those two months flood the ring road, so plan tarmac-only mornings then. It is best on a 6 a.m. dry-season ring road run, its comfort easing the early start; just avoid the October and November monsoon.
+
+*October 17, 2026 · EN*
+
 ### [When is cycling on Trek Marlin 5 best on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-trek-marlin-5/when-is-cycling-on-trek-marlin-5-best-on-samui/)
 
 I rode my fastest ring road - 50 km in 3h15 - on the Marlin 5 in cool, dry January air, and December through April is the optimal window: 25 to 30 degrees, low humidity, little rain, trade winds cooling the east coast. Whatever the season, the real window is 6 to 10 a.m.; leaving Chaweng at 6 in April I did 40 km before the heat made more effort unpleasant, a limit set by Samui's climate, not the bike. October and November are high-risk monsoon - I turned back after 15 km ahead of a fast Gulf thunderstorm, with daily rain of 100 to 300 mm flooding roads no bicycle handles safely. March and April give the driest, longest circuits and best coastal light, reliable from 6 to 11 a.m. Ride the Marlin 5 December to April, always before 10 a.m.; March and April give the longest dry windows, while October and November monsoon ends rides early.
