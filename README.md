@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How Cannondale Trail SL 4 handles Samui beach paths?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-cannondale-trail-sl-4/how-cannondale-trail-sl-4-handles-samui-beach-paths/)
+
+On the 300 m compacted dirt track to the Mae Nam fishing beach in dry January, the Trail SL 4's 29-inch tyres and 100 mm Suntour fork took the shallow ruts without dismounting - firm surfaces are within its capability, not its speciality. Between Mae Nam and Bo Phut where the sealed road gives way to 1.5 km of compacted gravel, it crossed without slowing, the big wheels rolling the embedded stones. But at the Hua Thanon beach access, 150 m of soft sand stopped the front wheel in 30 metres - the 29ers lack the volume to float and the tarmac-tuned geometry does not help, a limit shared by every bike here, not just the Cannondale. The Chaweng beach road promenade is its happiest coastal surface, clean concrete and ocean views at relaxed speed. On compacted tracks it rolls fine, but soft sand stops it in 30 metres; the sealed beach road is where it belongs.
+
+*October 19, 2026 · EN*
+
 ### [Where can you ride Super Soco CPx on Koh Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-super-soco-cpx/where-can-you-ride-super-soco-cpx-on-koh-samui/)
 
 The 52 km ring road circuit from Chaweng to Nathon and back is the CPx's defining Samui route - I used 78 per cent at a 55 km/h average, its 70 km/h ceiling holding pace with the 60 to 70 km/h car traffic where the G5 Pro and NIU cannot. The flat 18 km north coast road to Mae Nam is its most relaxed run at 22 per cent, linking the Fisherman's Village, Big Buddha and Mae Nam beach in one low-cost corridor. The Chaweng-Lamai round trip is 35 per cent with range for two extra detours. Starting a Big Buddha loop on 50 per cent, I swapped the battery at the junction outlet and rode on to the evening market - a route option no other e-scooter enables. Its limits are gravel, plantation and sand tracks. It is best on four routes: the ring road to Nathon, the north coast to Mae Nam, the Chaweng-to-Lamai run, and any loop with a swap point.
