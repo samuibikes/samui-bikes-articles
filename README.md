@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [When Giant Talon 3 is best for Samui mountain trails?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-giant-talon-3/when-giant-talon-3-is-best-for-samui-mountain-trails/)
+
+Leaving Chaweng on the Talon 3 at 6:30 a.m. in cool, dry January air I did 35 km of ring road before the heat built - December to April is its most capable window, when tarmac grip is predictable and humidity does not gum the Shimano shifting. In dry-season February the firm Na Muang laterite let its 27.5-inch wheels manage the rocky lower section without drama, though the Marlin 5's fork does it smoother. But on the wet clay plantation road above Nathon in October its tyres found zero grip and I walked 400 metres - its Kenda profile has no wet-condition bite, so once rain comes keep it on tarmac. Whatever the season it is a 6 to 10 a.m. bike, since Samui passes 30 degrees and 80 per cent humidity by mid-morning. It handles Samui's trails only when dry; on wet clay it strands you, so keep it on tarmac once the rain arrives.
+
+*October 20, 2026 · EN*
+
 ### [How Cannondale Trail SL 4 handles Samui beach paths?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-cannondale-trail-sl-4/how-cannondale-trail-sl-4-handles-samui-beach-paths/)
 
 On the 300 m compacted dirt track to the Mae Nam fishing beach in dry January, the Trail SL 4's 29-inch tyres and 100 mm Suntour fork took the shallow ruts without dismounting - firm surfaces are within its capability, not its speciality. Between Mae Nam and Bo Phut where the sealed road gives way to 1.5 km of compacted gravel, it crossed without slowing, the big wheels rolling the embedded stones. But at the Hua Thanon beach access, 150 m of soft sand stopped the front wheel in 30 metres - the 29ers lack the volume to float and the tarmac-tuned geometry does not help, a limit shared by every bike here, not just the Cannondale. The Chaweng beach road promenade is its happiest coastal surface, clean concrete and ocean views at relaxed speed. On compacted tracks it rolls fine, but soft sand stops it in 30 metres; the sealed beach road is where it belongs.
