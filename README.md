@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Why CB500X is best all around adventure bike on Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb500x/why-cb500x-is-best-all-around-adventure-bike-samui/)
+
+Over a ten-day rental - Samui ring road, mountain passes, a Surat Thani mainland excursion and a south coast loop - the CB500X completed every route without me adjusting expectations to the bike, where the CB300R would struggle on the mainland highway, the Himalayan on extended tarmac, the MT-03 on long ring road days. At 90 km/h its twin is quiet and its road-biased chassis settled, more refined than the Himalayan's single. On the rough concrete and edge gravel past the Nathon viewpoint its 160 mm clearance and semi-knobbies handle the surface without the CB300R's precision, though it cannot follow the Himalayan onto true plantation tracks. A unit inspected after six months of rental idled smoothly with both brakes correct. Its rate runs 200 to 300 baht a day over the MT-03, recovered in two days for extended or two-up riders. No rental covers tarmac as well while adding light off-road, touring comfort and mainland range - rivals beat it in one area, it wins overall.
+
+*October 21, 2026 · EN*
+
 ### [When Giant Talon 3 is best for Samui mountain trails?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-giant-talon-3/when-giant-talon-3-is-best-for-samui-mountain-trails/)
 
 Leaving Chaweng on the Talon 3 at 6:30 a.m. in cool, dry January air I did 35 km of ring road before the heat built - December to April is its most capable window, when tarmac grip is predictable and humidity does not gum the Shimano shifting. In dry-season February the firm Na Muang laterite let its 27.5-inch wheels manage the rocky lower section without drama, though the Marlin 5's fork does it smoother. But on the wet clay plantation road above Nathon in October its tyres found zero grip and I walked 400 metres - its Kenda profile has no wet-condition bite, so once rain comes keep it on tarmac. Whatever the season it is a 6 to 10 a.m. bike, since Samui passes 30 degrees and 80 per cent humidity by mid-morning. It handles Samui's trails only when dry; on wet clay it strands you, so keep it on tarmac once the rain arrives.
