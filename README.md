@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Where to explore Samui backcountry on Himalayan 450?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-royal-enfield-himalayan-450/where-to-explore-samui-backcountry-on-himalayan-450/)
+
+Above the Nathon junction I turn the Himalayan 450 onto the 7 km rubber plantation track - loose gravel at the entrance, compacted dirt through the middle, rock on top - riding all three at 15 to 25 km/h in first and second to a ridge with both-coast views no road reaches; a standard Thursday for me, high-risk on the CB300R. The central viewpoint road's rough concrete above 400 metres it takes without the CB300R's precision, then continues 2 km of dirt past the tarmac end. The 4 km elephant-sanctuary forest track, with root crossings and two stream beds, its spoked wheels and adventure tyres manage to a ridge temple 12 km closer than any tarmac approach. A 200 m Hua Thanon sand track it crosses at 10 km/h where I once pushed a CB300R. Then 25 km of ring road home, seamless. It reaches the Samui others cannot: the plantation track, the forest ridge approach, south coast beach sand and dirt past the tarmac.
+
+*October 22, 2026 · EN*
+
 ### [Why CB500X is best all around adventure bike on Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb500x/why-cb500x-is-best-all-around-adventure-bike-samui/)
 
 Over a ten-day rental - Samui ring road, mountain passes, a Surat Thani mainland excursion and a south coast loop - the CB500X completed every route without me adjusting expectations to the bike, where the CB300R would struggle on the mainland highway, the Himalayan on extended tarmac, the MT-03 on long ring road days. At 90 km/h its twin is quiet and its road-biased chassis settled, more refined than the Himalayan's single. On the rough concrete and edge gravel past the Nathon viewpoint its 160 mm clearance and semi-knobbies handle the surface without the CB300R's precision, though it cannot follow the Himalayan onto true plantation tracks. A unit inspected after six months of rental idled smoothly with both brakes correct. Its rate runs 200 to 300 baht a day over the MT-03, recovered in two days for extended or two-up riders. No rental covers tarmac as well while adding light off-road, touring comfort and mainland range - rivals beat it in one area, it wins overall.
