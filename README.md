@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [What is Cannondale Trail SL 4 lightweight advantage?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-cannondale-trail-sl-4/what-is-cannondale-trail-sl-4-lightweight-advantage/)
+
+Side by side with the Trek Marlin 5 at the Chaweng shop, the Trail SL 4 came in 600 to 800 grams lighter - Cannondale's SmartForm alloy, the same material as its higher-end models, achieves that through controlled composition and tube shaping, not just thinner walls, so it is lighter and stiffer at once. Timing the 2 km, 8 per cent Nathon climb in matched conditions, it beat the Marlin by 90 to 120 seconds: less mass to lift means less energy per metre gained, and the ring road's three climbs compound that. On the flat it accelerates more easily after each market and viewpoint stop, subtler than the climbing gain but real over a stop-filled 50 km. Through the mountain switchbacks its lateral stiffness transferred corner-exit power directly and held the line without flex. It saves 600 to 800 g over the Marlin 5, and on the Nathon climb that gap put me 90 to 120 seconds ahead - you feel it most going uphill.
+
+*October 23, 2026 · EN*
+
 ### [Where to explore Samui backcountry on Himalayan 450?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-royal-enfield-himalayan-450/where-to-explore-samui-backcountry-on-himalayan-450/)
 
 Above the Nathon junction I turn the Himalayan 450 onto the 7 km rubber plantation track - loose gravel at the entrance, compacted dirt through the middle, rock on top - riding all three at 15 to 25 km/h in first and second to a ridge with both-coast views no road reaches; a standard Thursday for me, high-risk on the CB300R. The central viewpoint road's rough concrete above 400 metres it takes without the CB300R's precision, then continues 2 km of dirt past the tarmac end. The 4 km elephant-sanctuary forest track, with root crossings and two stream beds, its spoked wheels and adventure tyres manage to a ridge temple 12 km closer than any tarmac approach. A 200 m Hua Thanon sand track it crosses at 10 km/h where I once pushed a CB300R. Then 25 km of ring road home, seamless. It reaches the Samui others cannot: the plantation track, the forest ridge approach, south coast beach sand and dirt past the tarmac.
