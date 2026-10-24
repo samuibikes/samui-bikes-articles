@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Who is Yamaha MT-03 for experienced riders on Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-yamaha-mt-03/who-is-yamaha-mt03-for-experienced-riders-on-samui/)
+
+At the Chaweng shop a Spanish rider with twelve years on parallel twins asked for the MT-03 before looking at anything else, checked the tyres, discs and footrests, and two days later returned having ridden the Nathon pass, the central viewpoint and the full ring road at exactly the pace she wanted. That specificity is its rider. Its 321cc twin - smooth midrange, linear from 3,000 to 10,000 rpm - rewards riders who know how to work a twin through corners, more adjustment than a single for anyone off automatics. On the 52 km ring road it reached Nathon in under 40 minutes unhurried, and on the Nathon switchbacks its extra 6 horsepower let me commit to corners the CB300R would not. It is wrong for 8 km beach-road hops in tourist traffic, where its power and gearbox are wasted. It suits experienced twin riders on mountain and ring road routes, happy with 37 hp and the premium rate; they use its range and come back grinning.
+
+*October 24, 2026 · EN*
+
 ### [What is Cannondale Trail SL 4 lightweight advantage?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-cannondale-trail-sl-4/what-is-cannondale-trail-sl-4-lightweight-advantage/)
 
 Side by side with the Trek Marlin 5 at the Chaweng shop, the Trail SL 4 came in 600 to 800 grams lighter - Cannondale's SmartForm alloy, the same material as its higher-end models, achieves that through controlled composition and tube shaping, not just thinner walls, so it is lighter and stiffer at once. Timing the 2 km, 8 per cent Nathon climb in matched conditions, it beat the Marlin by 90 to 120 seconds: less mass to lift means less energy per metre gained, and the ring road's three climbs compound that. On the flat it accelerates more easily after each market and viewpoint stop, subtler than the climbing gain but real over a stop-filled 50 km. Through the mountain switchbacks its lateral stiffness transferred corner-exit power directly and held the line without flex. It saves 600 to 800 g over the Marlin 5, and on the Nathon climb that gap put me 90 to 120 seconds ahead - you feel it most going uphill.
