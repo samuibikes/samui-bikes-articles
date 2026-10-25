@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which is better Himalayan 450 vs CB500X on Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-royal-enfield-himalayan-450/which-is-better-himalayan-450-vs-cb500x-on-samui/)
+
+I rode the Himalayan 450 and Honda CB500X up the Nathon plantation track on back-to-back mornings: the Himalayan rode all 7 km, the CB500X turned around at 3 where the gravel loosened over rock, its 17-inch front and semi-knobby tyres outmatched by the Himalayan's 21-inch spoked front and Ceat Gravel tyres. On tarmac the CB500X's 471cc twin is smoother and more settled at 85 km/h, where the Himalayan's long travel pitches slightly. Off-road its 230 mm clearance against the CB500X's 160 cleared forest roots the Honda had to route around. On an all-terrain day the Himalayan was comfier on the track, the CB500X on the long tarmac stretches, and they rent within 100 baht of each other. Any off-road picks the Himalayan; pure tarmac picks the refined CB500X. Undecided which terrain dominates? The Himalayan does both, the CB500X only tarmac.
+
+*October 25, 2026 · EN*
+
 ### [Who is Yamaha MT-03 for experienced riders on Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-yamaha-mt-03/who-is-yamaha-mt03-for-experienced-riders-on-samui/)
 
 At the Chaweng shop a Spanish rider with twelve years on parallel twins asked for the MT-03 before looking at anything else, checked the tyres, discs and footrests, and two days later returned having ridden the Nathon pass, the central viewpoint and the full ring road at exactly the pace she wanted. That specificity is its rider. Its 321cc twin - smooth midrange, linear from 3,000 to 10,000 rpm - rewards riders who know how to work a twin through corners, more adjustment than a single for anyone off automatics. On the 52 km ring road it reached Nathon in under 40 minutes unhurried, and on the Nathon switchbacks its extra 6 horsepower let me commit to corners the CB300R would not. It is wrong for 8 km beach-road hops in tourist traffic, where its power and gearbox are wasted. It suits experienced twin riders on mountain and ring road routes, happy with 37 hp and the premium rate; they use its range and come back grinning.
