@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How to ride Honda CB300R safely on Koh Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb300r/how-to-ride-honda-cb300r-safely-on-koh-samui/)
+
+Braking from 60 km/h on wet paint at the Chaweng crossing as a tourist stepped off the kerb, the CB300R's combined braking stopped me straight - but it sharpened my sense that on Samui's roads, which turn slippery inside five minutes of rain, dry-road braking technique must be applied earlier and more progressively. On the Nathon switchbacks I watched a renter run wide with his eyes on the road ahead; looking to the corner exit is the single most effective technique there. On the beach road at peak hour I hold 80 to 90 cm off the kerb, not the gutter, so drivers see the bike and I keep an escape line. I wear a full jacket and gloves whatever the heat, because a slide on rough tarmac does not care about the temperature. And I feed throttle progressively at corner exits, since too much on wet paint steps the rear out. Five rules: brake early wet, look to exits, hold an active line, wear full gear, feed throttle smoothly.
+
+*October 28, 2026 · EN*
+
 ### [Which is better Horwin EK3 vs NIU NQi GTS on Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-horwin-ek3/which-is-better-horwin-ek3-vs-niu-nqi-gts-samui/)
 
 I rode the Horwin EK3 and NIU NQi GTS on back-to-back mornings over the same 40 km Bo Phut-Mae Nam north coast loop: the NQi GTS cruised the open stretches at 65 km/h with more battery to spare, the EK3 topped near 45 but felt noticeably lighter under me - the difference is character, not capability. On the flat Lipa Noi coast the NQi GTS logged a genuine 135 to 160 km against the EK3's 120, telling on a two-loop day. In ring road traffic the NQi held 65 to 70 in the flow while the EK3 sat at 45. But wheeling both from a packed Fisherman's Village car park, the 92 kg EK3 turned far more willingly than the 114 kg NQi, easier for tight parking and nervous riders, and it charged full in 5 hours to the NQi's 6 to 7. Pick the NQi GTS for speed, range and app planning on fast full-island days; pick the EK3 for a lighter, quicker-charging, calm 45 km/h coastal machine.
