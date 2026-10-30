@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [When Merida big nine 15 is best for Samui riding?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-merida-big-nine-15/when-merida-big-nine-15-is-best-for-samui-riding/)
+
+I did a 45 km ring road on the Big.Nine 15 in cool dry February air, the Nathon climb shaded by coconut plantation - December to April is its best window, when the Acera shifts cleanly in low humidity and the XCM fork responds without tropical sluggishness. Whatever the month it is a pre-10 a.m. bike; leaving Nathon at 6 in April I did 38 km before the heat, its efficient 29ers generating slightly less rider heat per kilometre. Its clearest case is value: over seven days at a 150-baht daily gap it saves more than 1,000 baht against the Marlin 5, and on sealed tarmac the performance difference is measurable but not dramatic. In the May-to-September shoulder season its robust Acera needs no precision re-adjustment after humid rides, so morning-only plans still work. Ride it in the dry season and before the mid-morning heat, and take it over the Marlin 5 whenever your days are tarmac, not trail.
+
+*October 30, 2026 · EN*
+
 ### [How to ride Honda CB300R safely on Koh Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb300r/how-to-ride-honda-cb300r-safely-on-koh-samui/)
 
 Braking from 60 km/h on wet paint at the Chaweng crossing as a tourist stepped off the kerb, the CB300R's combined braking stopped me straight - but it sharpened my sense that on Samui's roads, which turn slippery inside five minutes of rain, dry-road braking technique must be applied earlier and more progressively. On the Nathon switchbacks I watched a renter run wide with his eyes on the road ahead; looking to the corner exit is the single most effective technique there. On the beach road at peak hour I hold 80 to 90 cm off the kerb, not the gutter, so drivers see the bike and I keep an escape line. I wear a full jacket and gloves whatever the heat, because a slide on rough tarmac does not care about the temperature. And I feed throttle progressively at corner exits, since too much on wet paint steps the rear out. Five rules: brake early wet, look to exits, hold an active line, wear full gear, feed throttle smoothly.
