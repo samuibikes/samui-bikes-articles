@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Who should choose Cannondale Trail SL 4 on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-cannondale-trail-sl-4/who-should-choose-cannondale-trail-sl-4-on-samui/)
+
+At the Chaweng shop a Dutch sportive rider lifted the Trail SL 4 off the stand and called it the lightest bike in the fleet - he was right, Cannondale's SmartForm alloy runs lighter than Trek, Giant or Merida at the same tier, and on the Nathon climb that weight turns straight into easier effort. Performance cyclists doing the full ring road for five or six consecutive days feel that lighter frame accumulate less fatigue day on day. Four Americans on their second Samui trip all requested it by name off their Cannondale bikes at home; it is the only Cannondale in the fleet. Through the Nathon switchbacks its stiff frame communicated the surface cleanly, precise where casual riders never notice but experienced ones feel at once. It suits performance cyclists, weight-watchers and Cannondale loyalists who feel frame quality; casual riders want the more forgiving Marlin 5 or cheaper Merida instead.
+
+*October 30, 2026 · EN*
+
 ### [When Merida big nine 15 is best for Samui riding?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-merida-big-nine-15/when-merida-big-nine-15-is-best-for-samui-riding/)
 
 I did a 45 km ring road on the Big.Nine 15 in cool dry February air, the Nathon climb shaded by coconut plantation - December to April is its best window, when the Acera shifts cleanly in low humidity and the XCM fork responds without tropical sluggishness. Whatever the month it is a pre-10 a.m. bike; leaving Nathon at 6 in April I did 38 km before the heat, its efficient 29ers generating slightly less rider heat per kilometre. Its clearest case is value: over seven days at a 150-baht daily gap it saves more than 1,000 baht against the Marlin 5, and on sealed tarmac the performance difference is measurable but not dramatic. In the May-to-September shoulder season its robust Acera needs no precision re-adjustment after humid rides, so morning-only plans still work. Ride it in the dry season and before the mid-morning heat, and take it over the Marlin 5 whenever your days are tarmac, not trail.
