@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How to swap battery on Super Soco CPx on Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-super-soco-cpx/how-to-swap-battery-on-super-soco-cpx-samui/)
+
+At the partner outlet near the Big Buddha junction on 16 per cent, the staff slid the CPx's pack out on its release latch in under 30 seconds, tool-free, and clicked in a full one - 4 minutes door to door, closer to a petrol fill than anything else in the e-scooter category. There are two swap points, near the Big Buddha and at Lamai market, both on the same operator network, and the service needs pre-confirming at handover, not at low battery. The 7 kg pack releases via a key-locked latch on the left frame, slides out with both hands and seats in reverse. Planning the Big Buddha swap as the midday stop turned a 65 km limit into a 100 km-plus ring road day. A 90-minute café charge recovers 34 points; the swap recovers 84 in 4 minutes. The swap only pays off if you plan it in: confirm the network at handover and treat it as a midday break, not a roadside panic stop.
+
+*November 4, 2026 · EN*
+
 ### [When Cannondale Trail SL 4 is worth renting on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-cannondale-trail-sl-4/when-cannondale-trail-sl-4-is-worth-renting-samui/)
 
 After five straight ring road circuits on the Trail SL 4 - 240 km over the week - my legs carried less accumulated fatigue than a comparable five days on the heavier Marlin the year before; that lighter frame's small per-circuit saving compounds, which is exactly when it is worth renting. Leaving Nathon at 6 a.m. in cool January air, its light weight and precise handling showed in the first kilometres, the dry season keeping tyre pressure and fork stable. Its rate sits above the Merida and Trek, justified only for serious riders doing the ring road at fitness pace, targeting times or riding consecutive days. Timing the Nathon climb I ran it 2 minutes faster over 4 km than heavier bikes. It earns its premium only on multi-day, high-volume dry-season riding; for one casual ring road loop the cheaper Merida Big.Nine 15 is plenty.
