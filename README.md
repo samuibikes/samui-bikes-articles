@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Why Horwin EK3 is eco friendly choice for Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-horwin-ek3/why-horwin-ek3-is-eco-friendly-choice-for-samui/)
+
+On the coastal road above the Ban Tai reef zone I passed a snorkel group carrying gear toward water 40 metres away, and on the EK3 I emitted nothing where a petrol scooter would have drifted exhaust toward the sea - Samui's north coast reef sections run close to the road, so an e-scooter there is a real reduction, not a symbol. Over seven days and 312 km it saved about 7.5 kg of CO2 against a Honda Click, a calculable figure, not a claim. At the Ang Thong ferry terminal it sat off amid idling scooters and fumes. On the elephant sanctuary approach it ran at 42 decibels, a quiet conversation, against a petrol bike's 75, which matters for wildlife welfare. Its dual battery covers every standard circuit while the zero-emission drivetrain keeps those circuits consistent with the island's sensitivity. For a traveller who takes Samui's reef corridors seriously, it is the most eco-responsible rental in the fleet - my green pick.
+
+*November 5, 2026 · EN*
+
 ### [How to swap battery on Super Soco CPx on Samui?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-super-soco-cpx/how-to-swap-battery-on-super-soco-cpx-samui/)
 
 At the partner outlet near the Big Buddha junction on 16 per cent, the staff slid the CPx's pack out on its release latch in under 30 seconds, tool-free, and clicked in a full one - 4 minutes door to door, closer to a petrol fill than anything else in the e-scooter category. There are two swap points, near the Big Buddha and at Lamai market, both on the same operator network, and the service needs pre-confirming at handover, not at low battery. The 7 kg pack releases via a key-locked latch on the left frame, slides out with both hands and seats in reverse. Planning the Big Buddha swap as the midday stop turned a 65 km limit into a 100 km-plus ring road day. A 90-minute café charge recovers 34 points; the swap recovers 84 in 4 minutes. The swap only pays off if you plan it in: confirm the network at handover and treat it as a midday break, not a roadside panic stop.
