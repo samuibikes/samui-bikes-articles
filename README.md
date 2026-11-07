@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Who needs Honda CB500X adventure bike on Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb500x/who-needs-honda-cb500x-adventure-bike-on-samui/)
+
+At the Chaweng shop an Australian rider with nine years on Honda adventure bikes asked for the largest machine still comfortable on a week's rental, and I pointed to the CB500X; he adjusted the windscreen, checked the seat, and three days later had done 180 km over the ring road, the Nathon pass and the south coast without once feeling it work at its limit. On the ring road its 471cc twin loafs at 5,500 rpm, using 60 per cent of its capability. Its real edge is mainland touring - the 160 mm clearance and twin suit Surat Thani highways far better than the CB300R - and two-up it barely registers a pillion where the CB300R labours. It is wrong for market streets and beach hops: at 196 kg and an 830 mm seat it needs room. It fits experienced riders planning extended Samui circuits or mainland days who want a bike that matches their ambition - my most ambitious renters.
+
+*November 7, 2026 · EN*
+
 ### [How Kawasaki Z650RS performs on Koh Samui highways?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-kawasaki-z650rs/how-kawasaki-z650rs-performs-on-koh-samui-highways/)
 
 On the Nathon straight at 95 km/h the Z650RS's 649cc twin turns 5,800 rpm, deep in its torque-rich midrange - peak 67 horsepower waits at 8,000, so at Samui's legal speeds it uses about 60 per cent, feeling unhurried rather than constrained. Up the switchbacks in third its corner-exit torque pulls from low rpm with fewer gear changes than the CB300R or MT-03 need, the Showa fork reading the surface and the tyres gripping the available lean. Braking from 70 km/h on wet paint, its dual 300 mm discs with ABS stopped progressive and straight, and from 95 on dry with no drama. It returns about 26 km/l - roughly 104 baht for a 68 km day, 640 for a 400 km week. Its twin vibrates less than the CB300R's single but more than the CB500X's, noticeable but not fatiguing under 80 km. It has more power than Samui's legal speeds need and brakes hard in the wet, topping the CB300R and MT-03 on all but tight switchbacks.
