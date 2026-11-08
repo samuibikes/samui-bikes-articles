@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How I survived rainy season ride Samui safety tips](https://samui-bikes.com/en/blog/advices/how-i-survived-rainy-season-ride-samui-safety-tips/)
+
+Monsoon rain on Samui is nothing like European drizzle - it arrives as a warm curtain that drops visibility to fifty metres in a minute, and because the tarmac is hotter than the rain, the first water leaves a steam-and-oil film between tyre and grip. I learned this the afternoon my Scoopy's front wheel found a white crosswalk stripe coming south out of Lamai and stepped out for a fraction of a second - painted lines, manhole covers and markings become ice in the first two minutes of rain. Now I check tyre pressure on every rental with a gauge I carry, triple my following distance in that first oily five minutes and cover the rear brake rather than grabbing the front. A 79-baht 7-Eleven poncho keeps my visor clear and muscles warm. And I read the sky and shelter under an awning rather than pushing through a heavy band, since Samui storms pass in fifteen to twenty-five minutes. Brake early, ride low, wait it out.
+
+*November 8, 2026 · EN*
+
 ### [Who needs Honda CB500X adventure bike on Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb500x/who-needs-honda-cb500x-adventure-bike-on-samui/)
 
 At the Chaweng shop an Australian rider with nine years on Honda adventure bikes asked for the largest machine still comfortable on a week's rental, and I pointed to the CB500X; he adjusted the windscreen, checked the seat, and three days later had done 180 km over the ring road, the Nathon pass and the south coast without once feeling it work at its limit. On the ring road its 471cc twin loafs at 5,500 rpm, using 60 per cent of its capability. Its real edge is mainland touring - the 160 mm clearance and twin suit Surat Thani highways far better than the CB300R - and two-up it barely registers a pillion where the CB300R labours. It is wrong for market streets and beach hops: at 196 kg and an 830 mm seat it needs room. It fits experienced riders planning extended Samui circuits or mainland days who want a bike that matches their ambition - my most ambitious renters.
