@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How to use Giant Talon 3 gears on Samui hills?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-giant-talon-3/how-to-use-giant-talon-3-gears-on-samui-hills/)
+
+Teaching a Dutch rider the Talon 3's gears at the Chaweng shop, I start with the basics: three front chainrings on the left shifter, seven rear sprockets on the right, 21 combinations - most ring road riding uses the middle chainring, the small one reserved for the steepest climbs. Approaching the Nathon climb, where the grade goes 4 to 8 per cent, I shift to the middle ring and largest sprocket before the slope, since shifting under load risks a dropped chain; its lowest gear then holds 70 to 80 rpm at 9 km/h without dismounting. Spinning above 70 rpm in a low gear beats grinding a big gear that wrecks the knees, the mistake most inexperienced riders make. On the descent I shift up progressively to meet the flat south coast ready to pedal. Most riders take the Nathon climb in too big a gear and wreck their knees; drop to the low gear before the slope and spin above 70 rpm - that is the trick.
+
+*November 9, 2026 · EN*
+
 ### [How I survived rainy season ride Samui safety tips](https://samui-bikes.com/en/blog/advices/how-i-survived-rainy-season-ride-samui-safety-tips/)
 
 Monsoon rain on Samui is nothing like European drizzle - it arrives as a warm curtain that drops visibility to fifty metres in a minute, and because the tarmac is hotter than the rain, the first water leaves a steam-and-oil film between tyre and grip. I learned this the afternoon my Scoopy's front wheel found a white crosswalk stripe coming south out of Lamai and stepped out for a fraction of a second - painted lines, manhole covers and markings become ice in the first two minutes of rain. Now I check tyre pressure on every rental with a gauge I carry, triple my following distance in that first oily five minutes and cover the rear brake rather than grabbing the front. A 79-baht 7-Eleven poncho keeps my visor clear and muscles warm. And I read the sky and shelter under an awning rather than pushing through a heavy band, since Samui storms pass in fifteen to twenty-five minutes. Brake early, ride low, wait it out.
