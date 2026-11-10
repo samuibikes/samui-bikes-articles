@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How Merida big nine 15 performs on Samui roads?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-merida-big-nine-15/how-merida-big-nine-15-performs-on-samui-roads/)
+
+On the Nathon ring road straight at 28 km/h in the middle chainring the Big.Nine 15 felt composed and efficient, its 29ers rolling fast and the Acera holding indexing at sustained effort - after 50 km I reached Chaweng without the fatigue imprecise shifting causes. Approaching the 8 per cent Nathon climb I shifted to the small ring and largest sprocket before the slope, the Acera responding instantly, and held 9 km/h at 80 rpm without standing or dismounting - for a rental, drama-free climbing is the most useful trait. On the flat north coast at Mae Nam I held 25 km/h for 8 km without aerobic effort, the big wheels holding momentum between strokes. On the Na Muang trail the XCM soaked the laterite within its 100 mm without bottoming, competent if not as composed as the Marlin's RockShox. It climbs the 8 per cent Nathon at a steady 9 km/h with no dismount and rolls fast on the north coast; on the trail it is competent.
+
+*November 10, 2026 · EN*
+
 ### [How to use Giant Talon 3 gears on Samui hills?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-giant-talon-3/how-to-use-giant-talon-3-gears-on-samui-hills/)
 
 Teaching a Dutch rider the Talon 3's gears at the Chaweng shop, I start with the basics: three front chainrings on the left shifter, seven rear sprockets on the right, 21 combinations - most ring road riding uses the middle chainring, the small one reserved for the steepest climbs. Approaching the Nathon climb, where the grade goes 4 to 8 per cent, I shift to the middle ring and largest sprocket before the slope, since shifting under load risks a dropped chain; its lowest gear then holds 70 to 80 rpm at 9 km/h without dismounting. Spinning above 70 rpm in a low gear beats grinding a big gear that wrecks the knees, the mistake most inexperienced riders make. On the descent I shift up progressively to meet the flat south coast ready to pedal. Most riders take the Nathon climb in too big a gear and wreck their knees; drop to the low gear before the slope and spin above 70 rpm - that is the trick.
