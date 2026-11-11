@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Why Trek Marlin 5 is top bicycle rental on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-trek-marlin-5/why-trek-marlin-5-is-top-bicycle-rental-on-samui/)
+
+On the cracked, shoulderless ring road descent above Nathon the Marlin 5's 29-inch wheels absorbed imperfections smaller wheels amplify - the 29er format is a practical advantage on an island road built in stages with inconsistent surfaces, not a luxury. Descending the Na Muang rock steps its 100 mm RockShox fork spared my hands and wrists, and after 40 ring road km they were not fatigued, so the fork aids endurance as much as trails. Climbing the 8 per cent Nathon grade its Shimano Altus low range held a sustainable cadence where the market's 7-speed hybrids force a push. A fleet inspected after eight wet-season months had clean frames and working drivetrains where salt air destroys cheaper bikes in a season. It tops Samui's fleet on four counts: 29-inch wheels, a RockShox fork that spares your wrists, 21-speed gearing and durability - no rival at its rate.
+
+*November 11, 2026 · EN*
+
 ### [How Merida big nine 15 performs on Samui roads?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-merida-big-nine-15/how-merida-big-nine-15-performs-on-samui-roads/)
 
 On the Nathon ring road straight at 28 km/h in the middle chainring the Big.Nine 15 felt composed and efficient, its 29ers rolling fast and the Acera holding indexing at sustained effort - after 50 km I reached Chaweng without the fatigue imprecise shifting causes. Approaching the 8 per cent Nathon climb I shifted to the small ring and largest sprocket before the slope, the Acera responding instantly, and held 9 km/h at 80 rpm without standing or dismounting - for a rental, drama-free climbing is the most useful trait. On the flat north coast at Mae Nam I held 25 km/h for 8 km without aerobic effort, the big wheels holding momentum between strokes. On the Na Muang trail the XCM soaked the laterite within its 100 mm without bottoming, competent if not as composed as the Marlin's RockShox. It climbs the 8 per cent Nathon at a steady 9 km/h with no dismount and rolls fast on the north coast; on the trail it is competent.
