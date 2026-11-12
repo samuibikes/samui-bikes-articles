@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [What trails can Trek Marlin 5 handle on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-trek-marlin-5/what-trails-can-trek-marlin-5-handle-on-samui/)
+
+I rode the Na Muang waterfall trail on the Marlin 5 - 3.5 km of packed laterite, exposed rock and two water crossings - and its 100 mm RockShox fork and 29-inch wheels took the rocky sections at a pace no hybrid could, to the lower pool where any bike stops. Above Nathon market I found 4 km of unmarked, rooted plantation singletrack where the 2.2-inch tyres held the clay after rain. Between Mae Nam and Bo Phut a 2 km compacted-dirt section bypasses a road diversion, ideal for 29ers at 18 km/h and unpleasant on cruisers. Scouting above the Big Buddha I got 800 metres before the path vanished into vegetation - Samui is honest about its limits, perhaps 20 km of real trail across three areas. So the Marlin 5 is overqualified for the island's trail inventory - Na Muang, the Nathon interior, north-coast dirt - and earns its spec on the road.
+
+*November 12, 2026 · EN*
+
 ### [Why Trek Marlin 5 is top bicycle rental on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-trek-marlin-5/why-trek-marlin-5-is-top-bicycle-rental-on-samui/)
 
 On the cracked, shoulderless ring road descent above Nathon the Marlin 5's 29-inch wheels absorbed imperfections smaller wheels amplify - the 29er format is a practical advantage on an island road built in stages with inconsistent surfaces, not a luxury. Descending the Na Muang rock steps its 100 mm RockShox fork spared my hands and wrists, and after 40 ring road km they were not fatigued, so the fork aids endurance as much as trails. Climbing the 8 per cent Nathon grade its Shimano Altus low range held a sustainable cadence where the market's 7-speed hybrids force a push. A fleet inspected after eight wet-season months had clean frames and working drivetrains where salt air destroys cheaper bikes in a season. It tops Samui's fleet on four counts: 29-inch wheels, a RockShox fork that spares your wrists, 21-speed gearing and durability - no rival at its rate.
