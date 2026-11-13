@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Why Giant Talon 3 is reliable mtb for Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-giant-talon-3/why-giant-talon-3-is-reliable-mtb-for-samui/)
+
+I came back to the Chaweng shop after a 40 km ring road loop on the Talon 3 with no drama and no mechanical attention needed - and on Samui, where shops rarely offer roadside support mid-ride, that boring reliability is practically valuable. In August at 85 per cent humidity and 32 degrees, when moisture swells cables and drifts indexing, its Shimano Tourney shifted as cleanly at kilometre 40 as at the start. Across five years I have never punctured its rear Kenda tyre, whose sidewall suits Samui's laterite, gravel and tarmac where road tyres cut - and punctures are the island's commonest mid-ride failure. Its mechanical discs stopped consistently on both the dry Nathon descent and the wet post-rain one, less water-sensitive than rim brakes. For occasional cyclists wanting a capable bike for a few days, that dependability matters more than any single spec - it delivers every time, which is why I trust it.
+
+*November 13, 2026 · EN*
+
 ### [What trails can Trek Marlin 5 handle on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-trek-marlin-5/what-trails-can-trek-marlin-5-handle-on-samui/)
 
 I rode the Na Muang waterfall trail on the Marlin 5 - 3.5 km of packed laterite, exposed rock and two water crossings - and its 100 mm RockShox fork and 29-inch wheels took the rocky sections at a pace no hybrid could, to the lower pool where any bike stops. Above Nathon market I found 4 km of unmarked, rooted plantation singletrack where the 2.2-inch tyres held the clay after rain. Between Mae Nam and Bo Phut a 2 km compacted-dirt section bypasses a road diversion, ideal for 29ers at 18 km/h and unpleasant on cruisers. Scouting above the Big Buddha I got 800 metres before the path vanished into vegetation - Samui is honest about its limits, perhaps 20 km of real trail across three areas. So the Marlin 5 is overqualified for the island's trail inventory - Na Muang, the Nathon interior, north-coast dirt - and earns its spec on the road.
