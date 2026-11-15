@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Where to ride Giant Talon 3 on Koh Samui trails?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-giant-talon-3/where-to-ride-giant-talon-3-on-koh-samui-trails/)
+
+I did the full 50 km ring road on the Talon 3 in 3h20 with two stops and found it entirely adequate - consistent tarmac with rough patches, gradients the Shimano handles, braking the mechanical discs meet at every junction, its natural environment at the right price. The flat 20 km north coast from Bo Phut to Mae Nam is its most photogenic route, wooden piers and boats and the Big Buddha across the bay, 70 minutes at easy pace. The 3.5 km Na Muang waterfall trail its Kenda tyres manage in about 25 minutes, but only in the dry season when the laterite is firm. Above Nathon market 5 km of compacted plantation dirt at 4 to 6 per cent grades is the island's most genuine off-tarmac riding, needing some route-finding. Its home is the ring road and north coast; add the Na Muang trail only when dry and the plantation roads above Nathon for real off-tarmac riding.
+
+*November 15, 2026 · EN*
+
 ### [Which is better Giant Talon 3 vs Trek Marlin on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-giant-talon-3/which-is-better-giant-talon-3-vs-trek-marlin-samui/)
 
 I rode the Giant Talon 3 and Trek Marlin 5 on back-to-back mornings over the same ring road and Na Muang trail: on sealed road both completed the loop comfortably, the difference real but not dramatic, while on the trail the Marlin's RockShox fork absorbed the rock more smoothly and its 29-inch wheels carried momentum better. The fork is the clearest gap - the Talon's SR Suntour feels working where the Marlin's is effortless, worth the Trek's premium if trails are the priority. The Marlin's 29ers also roll faster over the ring road's imperfections, accumulating over 50 km for fitness riders. But after a season the Talon showed less drivetrain wear and needed fewer interventions, its components chosen for durable high-cycle rental, and it rents cheaper. The Marlin's fork and 29-inch wheels win on trails, but the Talon gives 90 per cent of the ring road pace for less and held up better over a season.
