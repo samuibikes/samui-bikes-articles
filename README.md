@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [What makes Honda CB300R great naked bike for Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb300r/what-makes-honda-cb300r-great-naked-bike-for-samui/)
+
+At 80 km/h on the Chaweng ring road the CB300R's 286cc single spins near 7,000 rpm, well within its range - not a padded beginner bike but a genuinely capable small motorcycle whose 31 horsepower arrives progressively. On the Fisherman's Village concrete joints its Showa 41mm fork tracked each one without chassis flex, hardware from a different category to Samui's budget rentals and directly relevant on patchy tarmac. Braking from 65 km/h on wet paint, the combined system stopped me straight with no lock - and after seven wet Octobers here, never once. The 800 mm seat and slightly forward stance improve weight over tight corners and give a clear view of the apex on switchbacks tighter than they look. It returns about 30 km/l, roughly 84 baht for a 65 km mixed day, 520 for a 400 km week. The Showa fork, combined brakes, 286cc engine and naked stance are not brochure specs - together they suit Samui's roads better than any rival.
+
+*November 16, 2026 · EN*
+
 ### [Where to ride Giant Talon 3 on Koh Samui trails?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-giant-talon-3/where-to-ride-giant-talon-3-on-koh-samui-trails/)
 
 I did the full 50 km ring road on the Talon 3 in 3h20 with two stops and found it entirely adequate - consistent tarmac with rough patches, gradients the Shimano handles, braking the mechanical discs meet at every junction, its natural environment at the right price. The flat 20 km north coast from Bo Phut to Mae Nam is its most photogenic route, wooden piers and boats and the Big Buddha across the bay, 70 minutes at easy pace. The 3.5 km Na Muang waterfall trail its Kenda tyres manage in about 25 minutes, but only in the dry season when the laterite is firm. Above Nathon market 5 km of compacted plantation dirt at 4 to 6 per cent grades is the island's most genuine off-tarmac riding, needing some route-finding. Its home is the ring road and north coast; add the Na Muang trail only when dry and the plantation roads above Nathon for real off-tarmac riding.
