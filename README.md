@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [What is Horwin EK3 dual battery system? Explained](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-horwin-ek3/what-is-horwin-ek3-dual-battery-system-explained/)
+
+Plugging the EK3 into a single 220V socket at Mae Nam, I watched both battery segments climb together - the twin packs charge in parallel from one plug, no second cable, full in about 5 hours. Riding to Nathon they discharged evenly too, the management system drawing from both at once so I read one range figure, not two. On flat coastal tarmac at 42 km/h it used 0.9 per cent of combined capacity per km, a theoretical 110 km, landing at a real 80 to 90 per twin-charge; the 38 km north coast loop left 55 per cent, enough for a second lap. A 90-minute café stop recovers only about 22 points, so the practical approach is overnight charging, not midday top-ups. If one pack fails it runs on the other at roughly half range - a management situation, not a stranding, given Samui's 20 km charge spacing. The twin batteries are less a backup than a planning simplifier: in five years they have never stranded me.
+
+*November 17, 2026 · EN*
+
 ### [What makes Honda CB300R great naked bike for Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb300r/what-makes-honda-cb300r-great-naked-bike-for-samui/)
 
 At 80 km/h on the Chaweng ring road the CB300R's 286cc single spins near 7,000 rpm, well within its range - not a padded beginner bike but a genuinely capable small motorcycle whose 31 horsepower arrives progressively. On the Fisherman's Village concrete joints its Showa 41mm fork tracked each one without chassis flex, hardware from a different category to Samui's budget rentals and directly relevant on patchy tarmac. Braking from 65 km/h on wet paint, the combined system stopped me straight with no lock - and after seven wet Octobers here, never once. The 800 mm seat and slightly forward stance improve weight over tight corners and give a clear view of the apex on switchbacks tighter than they look. It returns about 30 km/l, roughly 84 baht for a 65 km mixed day, 520 for a 400 km week. The Showa fork, combined brakes, 286cc engine and naked stance are not brochure specs - together they suit Samui's roads better than any rival.
