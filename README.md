@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [How to maximize Horwin EK3 battery life in Samui heat?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-horwin-ek3/how-to-maximize-horwin-ek3-battery-life-in-samui-heat/)
+
+Parking the EK3 in noon Chaweng sun for 90 minutes left the pack at 41 degrees; 20 minutes in a shaded lane dropped it to 34 - hot packs charge slower and discharge faster, so on Samui shade parking is a battery decision, not comfort. Charging overnight at 26 degrees it reached full in 5h45, against 6h20 from the same socket in 34-degree afternoon heat, since the management system slows the rate to protect the cells. In wet-season heat 45 km/h drew 0.88 per cent per km against 1.1 at 55, the motor's heat above 50 triggering thermal protection, so a steady 45 to 50 both extends range and preserves the cells. Coastal descents recover 1 to 3 per cent each, 8 to 12 per cent across a day. After rain I let it dry and wipe the port before charging. Four habits keep it going all day: charge overnight while cool, park in shade, hold 45 to 50 km/h, and dry the port after rain.
+
+*November 19, 2026 · EN*
+
 ### [Which is better CB500X vs Himalayan for Samui touring?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb500x/which-is-better-cb500x-vs-himalayan-for-samui-touring/)
 
 I rode the CB500X and Himalayan 450 on back-to-back days over a 68 km ring road, plantation track and north coast loop, and they traded advantages by terrain. On the ring road at 85 km/h the CB500X's twin was smoother, its windscreen better, its road-biased chassis more composed where the Himalayan's long travel pitches. On the Nathon plantation track the Himalayan rode all 7 km while the CB500X turned back at 3 - 230 mm clearance against 160, adventure tyres against semi-knobbies, a 21-inch front against 17. Over 100 km days the twin's smoothness beat the single's highway vibration for comfort. They rent within 100 baht of each other, so the choice is purely route-driven. It hinges on one question: at a gravel track, do you turn around or carry on? Tarmac and two-up, the CB500X; off-road tracks, the Himalayan.
