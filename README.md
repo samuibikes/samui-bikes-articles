@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which is better Scott Aspect vs Giant Talon on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-scott-aspect-950/which-is-better-scott-aspect-vs-giant-talon-samui/)
+
+I rode the Scott Aspect 950 and Giant Talon 3 on back-to-back days over the same ring road, and wheel size was the immediate difference: the Aspect's 29-inch wheels held 26 km/h between strokes on the north coast more easily than the Talon's 27.5-inch, while both climbed the Nathon comparably. Over the full 50 km the Aspect's more relaxed geometry - longer reach, higher bar - cut lower-back tension the Talon's cross-country stance builds. But after a season the Talon needed fewer interventions, its components chosen explicitly for rental durability where the Scott targets the recreational market. They rent within 50 baht of each other, so with no brand preference the choice is spec-driven. The Aspect 950 brings 29-inch wheels and a comfier all-day position; the Talon counters with durability and a lower daily rate - neither approaches the Marlin 5 on real trails.
+
+*November 20, 2026 · EN*
+
 ### [How to maximize Horwin EK3 battery life in Samui heat?](https://samui-bikes.com/en/e-scooter-rental-koh-samui/rent-horwin-ek3/how-to-maximize-horwin-ek3-battery-life-in-samui-heat/)
 
 Parking the EK3 in noon Chaweng sun for 90 minutes left the pack at 41 degrees; 20 minutes in a shaded lane dropped it to 34 - hot packs charge slower and discharge faster, so on Samui shade parking is a battery decision, not comfort. Charging overnight at 26 degrees it reached full in 5h45, against 6h20 from the same socket in 34-degree afternoon heat, since the management system slows the rate to protect the cells. In wet-season heat 45 km/h drew 0.88 per cent per km against 1.1 at 55, the motor's heat above 50 triggering thermal protection, so a steady 45 to 50 both extends range and preserves the cells. Coastal descents recover 1 to 3 per cent each, 8 to 12 per cent across a day. After rain I let it dry and wipe the port before charging. Four habits keep it going all day: charge overnight while cool, park in shade, hold 45 to 50 km/h, and dry the port after rain.
