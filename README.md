@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Where Honda CB500X takes you beyond Samui island?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb500x/where-honda-cb500x-takes-you-beyond-samui-island/)
+
+At Donsak pier with the CB500X on the deck for the 70-minute crossing, I plan the day as Samui recedes - from Donsak it turns onto the Surat Thani dual carriageway, 55 km at 100 km/h relaxed in sixth. The daily ferry from Nathon costs about 230 baht plus vehicle, turning an island rental into a southern Thailand tour. Surat Thani opens the Tapi River old town, the Khao Sok approach and the Phun Phin road, all suiting its road-biased chassis. The Nakhon Si Thammarat mountain road climbs toward Khao Luang at 60 km/h in third and fourth, the twin never urgent, and I rode 5 km of the unpaved park road on 160 mm clearance before turning back where the Himalayan would go on. On graded forest dirt it reaches its limit below the Himalayan. From the Donsak ferry it opens the mainland: the Surat Thani highway, the Nakhon Si Thammarat mountain road, and a two-day coastal run toward Phang Nga.
+
+*November 21, 2026 · EN*
+
 ### [Which is better Scott Aspect vs Giant Talon on Samui?](https://samui-bikes.com/en/bicycle-rental-koh-samui/rent-scott-aspect-950/which-is-better-scott-aspect-vs-giant-talon-samui/)
 
 I rode the Scott Aspect 950 and Giant Talon 3 on back-to-back days over the same ring road, and wheel size was the immediate difference: the Aspect's 29-inch wheels held 26 km/h between strokes on the north coast more easily than the Talon's 27.5-inch, while both climbed the Nathon comparably. Over the full 50 km the Aspect's more relaxed geometry - longer reach, higher bar - cut lower-back tension the Talon's cross-country stance builds. But after a season the Talon needed fewer interventions, its components chosen explicitly for rental durability where the Scott targets the recreational market. They rent within 50 baht of each other, so with no brand preference the choice is spec-driven. The Aspect 950 brings 29-inch wheels and a comfier all-day position; the Talon counters with durability and a lower daily rate - neither approaches the Marlin 5 on real trails.
