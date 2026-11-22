@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which is better CB300R vs Yamaha MT-03 on Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb300r/which-is-better-cb300r-vs-yamaha-mt03-on-samui/)
+
+I rode the CB300R and Yamaha MT-03 up the Nathon pass on back-to-back mornings: the CB300R took the switchbacks at 45 to 55 km/h in third, composed and predictable, while the MT-03's 321cc twin gave a quicker corner-exit pull, its extra 6 horsepower evident from the first corner - composed against urgent. On the ring road the single's honest 7,500 rpm note contrasts the twin's smoother, turbine-like character; neither better, different bikes for the same road. On the steep central viewpoint climb the MT-03 pulled through where the CB300R wanted a downshift, a wider margin for riders pushing the pace. But its rate runs about 200 baht a day more, 1,400 a week, buying capability Samui's 52 km roads never use. Both are well-built and reliable for a week. Choose the CB300R for value and accessible mountain riding; the MT-03 only if you have ridden 300 to 400cc twins and push hard. For most renters the CB300R is right.
+
+*November 22, 2026 · EN*
+
 ### [Where Honda CB500X takes you beyond Samui island?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb500x/where-honda-cb500x-takes-you-beyond-samui-island/)
 
 At Donsak pier with the CB500X on the deck for the 70-minute crossing, I plan the day as Samui recedes - from Donsak it turns onto the Surat Thani dual carriageway, 55 km at 100 km/h relaxed in sixth. The daily ferry from Nathon costs about 230 baht plus vehicle, turning an island rental into a southern Thailand tour. Surat Thani opens the Tapi River old town, the Khao Sok approach and the Phun Phin road, all suiting its road-biased chassis. The Nakhon Si Thammarat mountain road climbs toward Khao Luang at 60 km/h in third and fourth, the twin never urgent, and I rode 5 km of the unpaved park road on 160 mm clearance before turning back where the Himalayan would go on. On graded forest dirt it reaches its limit below the Himalayan. From the Donsak ferry it opens the mainland: the Surat Thani highway, the Nakhon Si Thammarat mountain road, and a two-day coastal run toward Phang Nga.
