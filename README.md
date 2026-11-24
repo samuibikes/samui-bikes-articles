@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which is better Forza 350 vs XMAX 300 on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-forza-350/which-is-better-forza-350-vs-xmax-300-on-samui/)
+
+I rode the Forza 350 and XMAX 300 back-to-back along the ring road because they are the two premium maxi-scooters renters most often weigh against each other - both comfortable, fast and built for touring, so neither is wrong, the differences matters of emphasis. On the bypass the Forza's 330cc felt a touch stronger and more relaxed than the XMAX's 292cc, which answers with a sportier, more eager character. Raising the screen against a headwind, I gave comfort to the Forza - its electric windscreen and enclosed front shelter better than the XMAX's manual screen, its seat a shade plusher. But the XMAX's larger 13.2-litre tank stretches further between fills than the Forza's 11.7, while the Forza counters with its Smart Key and deep storage. Rates sit close, availability often deciding. The Forza edges ahead on refinement, screen and Smart Key; the XMAX counters with a bigger tank and sportier feel. Both are superb - pick by priority.
+
+*November 24, 2026 · EN*
+
 ### [Cycling every beach Koh Samui 3 day challenge](https://samui-bikes.com/en/blog/stories/cycling-every-beach-koh-samui-3-day-challenge/)
 
 I set out one March Tuesday to reach every named Samui beach by bicycle in three days: touch the sand at each, no motor between them, on a Trek Marlin 5 for its 29-inch wheels, 21-speed gearing and disc brakes. Day one took the east and south coast - 19 beaches, 68 km - the Lamai-to-cape tracks dropping 400 to 600 metres on sand and gravel, and a rear puncture on hidden rebar near Hua Thanon. Day two found four west-coast bays on no itinerary, boats pulled up and a man mending a net, 54 km and 14 beaches where the Marlin's suspension earned its keep. I reached Nathon at 82 km with 33 beaches done. Day three was eight north-coast beaches, 58 km and a second puncture on a Choeng Mon hump. Final count: 41 beaches, 183 km, 1,400 metres of climbing, 1,800 baht. I would do it again in February for kinder winds, with a Talon backup for the sand days and one real rest stop daily.
