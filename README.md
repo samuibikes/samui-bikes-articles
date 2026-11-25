@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [What is Honda ADV 350 touring range and comfort?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-350/what-is-honda-adv-350-touring-range-and-comfort/)
+
+I rarely visit a petrol station mid-ride on the ADV 350 - its 11.7-litre tank covers several laps of the 51 km ring road plus inland detours before the gauge demands attention, an enormous planning difference against the 4-litre town scooters, so you ride where you want, not where the next pump is. Over the patched surface near the Na Mueang turnoff its long-travel suspension soaks impacts that jar smaller scooters, making even rough sealed tarmac noticeably more comfortable. Behind the adjustable screen on the open bypass it deflects the wind blast that exhausts you over hours, and its upright bars, roomy floorboard and supportive seat keep the posture relaxed all day. Underseat storage takes a rain jacket, water and a small bag for Samui's sudden downpours. The 11.7-litre tank covers multiple island loops between fills, while the suspension, adjustable screen and upright seat keep all-day riding comfortable.
+
+*November 25, 2026 · EN*
+
 ### [Which is better Forza 350 vs XMAX 300 on Samui?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-forza-350/which-is-better-forza-350-vs-xmax-300-on-samui/)
 
 I rode the Forza 350 and XMAX 300 back-to-back along the ring road because they are the two premium maxi-scooters renters most often weigh against each other - both comfortable, fast and built for touring, so neither is wrong, the differences matters of emphasis. On the bypass the Forza's 330cc felt a touch stronger and more relaxed than the XMAX's 292cc, which answers with a sportier, more eager character. Raising the screen against a headwind, I gave comfort to the Forza - its electric windscreen and enclosed front shelter better than the XMAX's manual screen, its seat a shade plusher. But the XMAX's larger 13.2-litre tank stretches further between fills than the Forza's 11.7, while the Forza counters with its Smart Key and deep storage. Rates sit close, availability often deciding. The Forza edges ahead on refinement, screen and Smart Key; the XMAX counters with a bigger tank and sportier feel. Both are superb - pick by priority.
