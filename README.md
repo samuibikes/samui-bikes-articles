@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Where to take Honda CB300R on Samui mountain roads?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb300r/where-to-take-honda-cb300r-on-samui-mountain-roads/)
+
+The Nathon pass is the CB300R's best Samui road: at 7 a.m. the switchback section runs 4 km of tightening corners from kilometre two, and in third at 45 to 55 km/h the suspension tracks, the motor pulls from each exit and the brakes never fade - the most appropriate machine of fourteen I have ridden there. The 9 km central viewpoint climb shifts tarmac to rough asphalt to concrete patches without needing rider adaptation, the descent the better half. On the Nathon straight sixth gear holds a relaxed 95 km/h for 3 km. The 18 km north coast run to Mae Nam, extended via the Big Buddha and Fisherman's Village, makes a 46 km circuit under two hours. Its limit is loose surface - a sandy Lamai beach track I walked it across, its 147 kg and road tyres road-only. Its four best roads are the Nathon pass, the central viewpoint road, the north coast circuit and the full ring road - all tarmac, in its range.
+
+*November 26, 2026 · EN*
+
 ### [What is Honda ADV 350 touring range and comfort?](https://samui-bikes.com/en/scooter-rental-koh-samui/rent-honda-adv-350/what-is-honda-adv-350-touring-range-and-comfort/)
 
 I rarely visit a petrol station mid-ride on the ADV 350 - its 11.7-litre tank covers several laps of the 51 km ring road plus inland detours before the gauge demands attention, an enormous planning difference against the 4-litre town scooters, so you ride where you want, not where the next pump is. Over the patched surface near the Na Mueang turnoff its long-travel suspension soaks impacts that jar smaller scooters, making even rough sealed tarmac noticeably more comfortable. Behind the adjustable screen on the open bypass it deflects the wind blast that exhausts you over hours, and its upright bars, roomy floorboard and supportive seat keep the posture relaxed all day. Underseat storage takes a rain jacket, water and a small bag for Samui's sudden downpours. The 11.7-litre tank covers multiple island loops between fills, while the suspension, adjustable screen and upright seat keep all-day riding comfortable.
