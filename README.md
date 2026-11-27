@@ -12,6 +12,12 @@ a trip smoother. Curated by the team at [samui-bikes.com](https://samui-bikes.co
 
 <!-- LATEST:START -->
 
+### [Which is better Honda CMX300 Rebel vs CB300R on Samui?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cmx300-rebel/which-is-better-honda-cmx300-rebel-vs-cb300r-samui/)
+
+I rode the Rebel 300 and CB300R back-to-back on the same Samui loop because step-up riders often weigh these two Hondas against each other - they share a 286cc heart but could not feel more different, the Rebel a low, relaxed cruiser, the CB300R an upright sporty naked. Putting both feet down at a Bophut junction the gap is obvious: the Rebel's 690 mm seat lets almost anyone flat-foot while the CB300R's 800 mm leaves shorter riders on tiptoe, far less intimidating for petite riders. Tipping into the Lad Koh bends the CB300R comes alive, light and keen to rev, where the Rebel prefers to amble the flat coast. Settling in for a long stint, the Rebel's armchair posture is more relaxing while the CB300R's upright stance suits active riding. Same engine size, opposite characters: pick the Rebel 300 for easy coastal days, the CB300R for keen riders who want to carve the hills.
+
+*November 27, 2026 · EN*
+
 ### [Where to take Honda CB300R on Samui mountain roads?](https://samui-bikes.com/en/motorcycle-rental-koh-samui/rent-honda-cb300r/where-to-take-honda-cb300r-on-samui-mountain-roads/)
 
 The Nathon pass is the CB300R's best Samui road: at 7 a.m. the switchback section runs 4 km of tightening corners from kilometre two, and in third at 45 to 55 km/h the suspension tracks, the motor pulls from each exit and the brakes never fade - the most appropriate machine of fourteen I have ridden there. The 9 km central viewpoint climb shifts tarmac to rough asphalt to concrete patches without needing rider adaptation, the descent the better half. On the Nathon straight sixth gear holds a relaxed 95 km/h for 3 km. The 18 km north coast run to Mae Nam, extended via the Big Buddha and Fisherman's Village, makes a 46 km circuit under two hours. Its limit is loose surface - a sandy Lamai beach track I walked it across, its 147 kg and road tyres road-only. Its four best roads are the Nathon pass, the central viewpoint road, the north coast circuit and the full ring road - all tarmac, in its range.
